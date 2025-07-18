@@ -1,12 +1,47 @@
-#### 1. Header Section
-Lecture – Ma'rifat, Intellect, and True Practice
-Speaker: Dr. Shabeeb Rizvi
-Venue: Residence of Asif Lakhani
-Date/Occasion: Lecture 1 of 5 - Moharram 2025
+# Majlis No. 1: Ma'rifat, Intellect, and True Practice
 
-Primary Theme: Ma'rifat, Intellect, and Authentic Practice
+## Lecture Details
 
-#### 2. Complete Content Sections
+**Speaker:** Dr. Shabeeb Rizvi  
+**Venue:** Residence of Asif Lakhani  
+**Date/Occasion:** Lecture 1 of 5 - Moharram 2025  
+**Primary Theme:** Ma'rifat, Intellect, and Authentic Practice  
+
+---
+
+## 📋 Table of Contents
+
+- [Majlis No. 1: Ma'rifat, Intellect, and True Practice](#majlis-no-1-marifat-intellect-and-true-practice)
+  - [Lecture Details](#lecture-details)
+  - [📋 Table of Contents](#-table-of-contents)
+  - [Content](#content)
+    - [Introduction to the Quranic Verse: Surah Al-A'raf, Verse 199](#introduction-to-the-quranic-verse-surah-al-araf-verse-199)
+    - [Analysis of the Three Commands in Surah Al-A'raf, Verse 199](#analysis-of-the-three-commands-in-surah-al-araf-verse-199)
+    - [Elaboration on *Khudh al-Afw* (Hold to Forgiveness and Gentleness)](#elaboration-on-khudh-al-afw-hold-to-forgiveness-and-gentleness)
+    - [Elaboration on *Amr bil Ma'ruf* (Enjoining what is Customary/Right)](#elaboration-on-amr-bil-maruf-enjoining-what-is-customaryright)
+    - [The Definition and Characteristics of *Ma'ruf* (Good/Known)](#the-definition-and-characteristics-of-maruf-goodknown)
+    - [Ma'rifat (Recognition) as the Supreme *Ma'ruf*](#marifat-recognition-as-the-supreme-maruf)
+    - [The Steadfastness of Janab Qambar: An Example of True Ma'rifat](#the-steadfastness-of-janab-qambar-an-example-of-true-marifat)
+    - [The Imam's Guidance: Criteria for True Faith](#the-imams-guidance-criteria-for-true-faith)
+    - [The Role of Intellect (*Aql*) in Faith and Preaching](#the-role-of-intellect-aql-in-faith-and-preaching)
+    - [The Commander of the Faithful's Guidance on Preaching](#the-commander-of-the-faithfuls-guidance-on-preaching)
+    - [Practical Application of Ma'rifat: Parenting and Values](#practical-application-of-marifat-parenting-and-values)
+    - [The Ma'rifat of Death: The Example of Qasim ibn Hassan (AS)](#the-marifat-of-death-the-example-of-qasim-ibn-hassan-as)
+      - [3. Key Insights Collection](#3-key-insights-collection)
+    - [📌 Principles and Insights Taught](#-principles-and-insights-taught)
+  - [📚 Detailed References](#-detailed-references)
+    - [1. **al-Kāfī – Volume 2, Page 631**](#1-al-kāfī--volume-2-page-631)
+    - [2. **Ghurar al-Hikam – Page 295**](#2-ghurar-al-hikam--page-295)
+    - [3. **al-Amālī (al-Ṣadūq) – Page 303**](#3-al-amālī-al-ṣadūq--page-303)
+    - [5. **Kanz al-Fawā’id – Volume 1, Page 57**](#5-kanz-al-fawāid--volume-1-page-57)
+    - [6. **Al-Kāfī (Islamic Publishing), Volume 1, Page 24, Tradition 19**](#6-al-kāfī-islamic-publishing-volume-1-page-24-tradition-19)
+    - [7. **Al-Irshād fī Ma‘rifat Ḥujaj Allāh ‘alā al-‘Ibād, Volume 1, Page 328**](#7-al-irshād-fī-marifat-ḥujaj-allāh-alā-al-ibād-volume-1-page-328)
+    - [8. **Al-Kāfī (Islamic Publishing), Volume 1, page 293, Tradition 3**](#8-al-kāfī-islamic-publishing-volume-1-page-293-tradition-3)
+    - [9. **Manāqib Āl Abī Ṭālib (Ibn Shahrāshūb), Volume 4, Page 184**](#9-manāqib-āl-abī-ṭālib-ibn-shahrāshūb-volume-4-page-184)
+    - [10. **Al-Ghaybah (by al-Nu‘mānī), Page 33–34, Tradition No. 1**](#10-al-ghaybah-by-al-numānī-page-3334-tradition-no-1)
+    - [11. **Hidayatul Kubra of al-Khosaibi, Page 204**](#11-hidayatul-kubra-of-al-khosaibi-page-204)
+
+## Content
 
 ### Introduction to the Quranic Verse: Surah Al-A'raf, Verse 199
 
@@ -338,6 +373,25 @@ The day of Ashura arrived, the chain of martyrdoms began until that point came w
 | **Trustworthiness and Truthfulness are Universal Criteria** | Sincerity in speech and trustworthiness are fundamental human virtues, transcending religious affiliations, and are true signs of a believer. |
 | **The Ma'rifat of Death** | True recognition of the Imams and their path leads to a state where death for the sake of faith is perceived as "sweeter than honey," even by the young. |
 | **Wilayah (Guardianship) is the Spirit of Worship** | Without the spiritual guardianship of the Imam, outward acts of worship like prayer, fasting, and Hajj are considered devoid of true value and spirit. |
+
+---
+
+> [!IMPORTANT]
+> **Key Teaching Method**: The lecture emphasizes that religious preaching should begin with fundamentals (Ma'rifat of Allah, Prophet, and Imams) before moving to branches of religion. Direct enforcement without understanding leads to resistance and enmity toward religion.
+
+> [!NOTE]
+> **Central Quranic Verse**: Surah Al-A'raf, Verse 199 forms the foundation of this discourse, presenting three divine commands that guide authentic spiritual practice.
+
+<details>
+<summary><strong>📖 Quick Reference: Three Commands from Surah Al-A'raf (7:199)</strong></summary>
+
+| Arabic | Translation | Key Application |
+|--------|-------------|----------------|
+| **خُذِ الْعَفْوَ** | Hold to forgiveness | Practice gentleness and forgiveness in all dealings |
+| **وَأْمُرْ بِالْعُرْفِ** | Command what is customary/right | Enjoin only what intellect accepts and brings joy |
+| **وَأَعْرِضْ عَنِ الْجَاهِلِينَ** | Turn away from the ignorant | Avoid engaging with those who act against reason |
+
+</details>
 
 ---
 
