@@ -145,17 +145,17 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 
 1. **June 27** - [Majlis No. 1](2025/2025-06-27_YariRoad_Majlis01_AbbasPatel_DrShabeebRizvi) *(1st Moharram 1446 AH)*
 2. **June 28** - [Majlis No. 2](2025/2025-06-28_YariRoad_Majlis02_AbbasPatel_DrShabeebRizvi) *(2nd Moharram 1446 AH)*
-3. **June 28** - [Majlis No. 3](2025/2025-06-28_YariRoad_Majlis03_AbbasPatel_DrShabeebRizvi) *(3rd Moharram 1446 AH)*
-4. **June 29** - [Majlis No. 4](2025/2025-06-29_YariRoad_Majlis04_AbbasPatel_DrShabeebRizvi) *(4th Moharram 1446 AH)*
-5. **June 30** - [Majlis No. 5](2025/2025-06-30_YariRoad_Majlis05_AbbasPatel_DrShabeebRizvi) *(5th Moharram 1446 AH)*
+3. **June 29** - [Majlis No. 3](2025/2025-06-29_YariRoad_Majlis03_AbbasPatel_DrShabeebRizvi) *(3rd Moharram 1446 AH)*
+4. **June 30** - [Majlis No. 4](2025/2025-06-30_YariRoad_Majlis04_AbbasPatel_DrShabeebRizvi) *(4th Moharram 1446 AH)*
+5. **July 01** - [Majlis No. 5](2025/2025-07-01_YariRoad_Majlis05_AbbasPatel_DrShabeebRizvi) *(5th Moharram 1446 AH)*
 
 ### Tanveer Devji
 **Speaker: Dr. Shabeeb Rizvi**  
-**July 1** - [Majlis No. 6](2025/2025-07-01_YariRoad_Majlis06_TanveerDevji_DrShabeebRizvi) *(6th Moharram 1446 AH)*
+**July 02** - [Majlis No. 6](2025/2025-07-02_YariRoad_Majlis06_TanveerDevji_DrShabeebRizvi) *(6th Moharram 1446 AH)*
 
-### Ravji
+### Saquib Ravji
 **Speaker: Dr. Shabeeb Rizvi**  
-**July 2** - [Majlis No. 7](2025/2025-07-02_YariRoad_Majlis07_Ravji_DrShabeebRizvi) *(7th Moharram 1446 AH)*
+**July 03** - [Majlis No. 7](2025/2025-07-03_YariRoad_Majlis07_SaquibRavji_DrShabeebRizvi) *(7th Moharram 1446 AH)*
 
 ### Tauqeer Devji
 **Speaker: Dr. Shabeeb Rizvi**  
