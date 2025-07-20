@@ -26,7 +26,7 @@
     - [The Role of Intellect (*Aql*) in Faith and Preaching](#the-role-of-intellect-aql-in-faith-and-preaching)
     - [The Commander of the Faithful's Guidance on Preaching](#the-commander-of-the-faithfuls-guidance-on-preaching)
     - [Practical Application of Ma'rifat: Parenting and Values](#practical-application-of-marifat-parenting-and-values)
-    - [The Ma'rifat of Death: The Example of Qasim ibn Hassan (AS)](#the-marifat-of-death-the-example-of-qasim-ibn-hassan-as)
+    - [The Ma'rifat of Death: The Example of Qasim ibn Hassan (peace be upon him)](#the-marifat-of-death-the-example-of-qasim-ibn-hassan-peace-be-upon-him)
       - [3. Key Insights Collection](#3-key-insights-collection)
     - [📌 Principles and Insights Taught](#-principles-and-insights-taught)
   - [📚 Detailed References](#-detailed-references)
@@ -38,19 +38,21 @@
 The noble verse chosen for this discourse is verse number 199 of Surah Al-A'raf, which is the seventh chapter of the Quran, named Al-A'raf. Allah, the Blessed and Exalted, is commanding the Holy Prophet, peace be upon him and his holy family. Allah is commanding the Holy Prophet, peace be upon him and his holy family, and actually, this is not just for the Holy Prophet, peace be upon him and his holy family, but for all of us. Imam Sadiq, peace be upon them, said:
 
 **ما انزل الله القران الا بایاك اعني واسمعي يا جارة**
-Allah did not reveal the Quran except with the proverb: 'I mean you, so listen, O neighbor.' [^1]
+Allah did not reveal the Quran except with the proverb: 'I mean you, so listen, O neighbor.'
+- Tradition of Imam al-Sadiq (peace be upon him), al-Kāfī Volume 2, Page 631 [^1]
 
 This is a saying of the Sixth Imam. Allah did not reveal the Quran except with this شعار (motto), this proverb. The Imam states, with this proverb:
 
 **ایاك اعني و اسمي يا جارة**
-I mean you, so listen, O neighbor. [^1]
+I mean you, so listen, O neighbor.
+- Tradition of Imam al-Sadiq (peace be upon him), al-Kāfī Volume 2, Page 631 [^1]
 
 
 Meaning, "I am speaking to you, but listen, O neighbor!" This means that in many places, the address is to the Holy Prophet, peace be upon him and his holy family, but actually, Allah's intention is for other people. For example, to make the point clear for children (elders already understand). For example, Allah said in the verse of Ghadir, which you recite:
 
 **يا أيها الرسول بلغ ما أنزل إليك من ربك ۖ وإن لم تفعل فما بلغت رسالته ۚ والله يعصمك من الناس**
 O Messenger, announce that which has been revealed to you from your Lord; and if you do not, then you have not conveyed His message. And Allah will protect you from the people.
-- Surah Al-Ma'idah (5), Verse 67
+- Surah Al-Ma'idah (5), Verse 67 [^2]
 
 So, apparently, the address is to the Holy Prophet, peace be upon him and his holy family. It says, 'O Messenger, convey this message of Wilayah (guardianship).' If you do not convey the message of Wilayah (guardianship), it is as if you have not performed any part of your prophethood's mission. So, actually, this is indeed addressed to us. That if you have done everything, but if there is no Wilayah (guardianship), what can I say, marvelous! If there is no Wilayah (guardianship), then you have done nothing. So all your deeds are zero. And don't worry about Wilayah (guardianship); don't worry, **والله يعصمك من الناس** (And Allah will protect you from the people.). Allah will protect you from the evil of people, meaning, 'evil' here implies there were some mischievous people from whom Allah was providing guarantee.
 
@@ -60,25 +62,25 @@ So this is a very important verse of the Quran, which you all have just recited,
 
 **خذ العفو**
 Hold to forgiveness
-- Surah Al-A'raf (7), Verse 199
+- Surah Al-A'raf (7), Verse 199 [^3]
 
 as the first thing. That is, this verse has three commands; it is a small verse, but it actually has only six words. But there are three main commands. And what are those commands? The very first is:
 
 **خذ العفو**
 Hold to forgiveness
-- Surah Al-A'raf (7), Verse 199
+- Surah Al-A'raf (7), Verse 199 [^3]
 
 So, what is its apparent meaning? Make forgiveness your motto, meaning, make it your habit. To forgive people. Forgive whoever makes a mistake, forgive whoever does wrong. **خذ العفو** (Hold to forgiveness), just keep forgiving. Actually, we will explain the implications further now. First, let's translate the verse. And then the second part says:
 
 **وأمر بالعرف**
 and command what is customary
-- Surah Al-A'raf (7), Verse 199
+- Surah Al-A'raf (7), Verse 199 [^3]
 
 **وأمر** (and command), meaning, 'command,' and give people orders for what purpose? **بالعرف** (what is customary). This part, **وأمر بالعرف** (and command what is customary), God willing, we will discuss these two words for five days. If Allah grants us success and life. So if Allah grants us success and life, we will discuss these two words: what **وأمر بالعرف** (and command what is customary) means. You will command **عرف** (customary). God willing, we will explain it.
 
 **وأعرض عن الجاهلين**
 and turn away from the ignorant
-- Surah Al-A'raf (7), Verse 199
+- Surah Al-A'raf (7), Verse 199 [^3]
 
 is the third order. And when the **جاهل** (ignorant person) addresses you, when an ignorant person starts speaking, turn away. There is no benefit in talking to an ignorant person. Here, 'ignorant' does not mean someone who lacks knowledge. Look, when the Arabic word **جاہل** (ignorant person) is used, it has two opposites. One opposite of the word **جاہل** (ignorant person) is **عالم** (learned person), and the other opposite of **جاہل** (ignorant person) is **عاقل** (wise person). So, if **جاہل** (ignorant person) means someone who does not know, then that's fine; many people do not know many things. In this context, only Allah, His Messenger, peace be upon him and his holy family, and the Imam are the **عالم** (learned person). But the second type of **جاہل** (ignorant person) is someone who acts against reason. That intellect which Allah has given to everyone. God willing, if Allah grants success, there will be some discussion on this.
 
@@ -90,7 +92,7 @@ So, one meaning of **عفو** (forgiveness) is to forgive. And another meaning o
 
 **فبما رحمة من الله لنت لهم**
 So by mercy from Allah, you were lenient with them.
-- Surah Al-Imran (3), Verse 159
+- Surah Al-Imran (3), Verse 159 [^4]
 
 This is Allah's mercy upon you that you are dealing with such gentleness. You deal with them so politely, so softly. This is the mercy of the Lord, because the Holy Prophet, peace be upon him and his holy family, was **رحمة للعالمين** (a mercy to the worlds). The Holy Prophet, peace be upon him and his holy family, was a mercy for everyone, which is why the Holy Prophet, peace be upon him and his holy family, spoke gently. The Holy Prophet, peace be upon him and his holy family, spoke softly. This was the method of the Holy Prophet, peace be upon him and his holy family. And from this, one can tell who follows the Holy Prophet, peace be upon him and his holy family, and who does not. From a person's way of speaking, it becomes evident who is truly a Muslim and who is not. A person who naturally speaks by shouting and uses abusive language in every conversation, understand that they are Muslim in name only. But in practice, they are nothing. They are zero, because an actual Muslim means someone who fully submits. That is what a Muslim is called. Someone who adopts not only verbally but even the conduct and character of the Holy Prophet, peace be upon him and his holy family.
 
@@ -98,13 +100,13 @@ So remember, what is Allah saying in the Quran now?
 
 **فبما رحمة من الله لنت لهم**
 So by mercy from Allah, you were lenient with them.
-- Surah Al-Imran (3), Verse 159
+- Surah Al-Imran (3), Verse 159 [^4]
 
 **لنت** (you were lenient) in Arabic is derived from **لنت** (you were lenient) or **لين** (lenient), meaning extremely soft. Something that is very soft is called **لين** (lenient) in Arabic. Meaning, the Holy Prophet, peace be upon him and his holy family, was extremely soft. So soft that Allah gave an example elsewhere in the Quran, saying that when you commit audacity against the Holy Prophet, peace be upon him and his holy family, only then does the Holy Prophet, peace be upon him and his holy family, feel modesty to say something to you. That is, Allah says in the Quran about the Holy Prophet, peace be upon him and his holy family, that you commit audacity against him. But Allah says that he feels modesty, but I will not. Allah says, 'On his behalf, I will condemn you.' Did you pay attention? So look, what is the verse?
 
 **فبما رحمة من الله لنت لهم ۚ ولو كنت فظا غليظ القلب لانفضوا من حولك**
 So by mercy from Allah, you were lenient with them. And if you had been rude [in speech] and harsh in heart, they would have disbanded from about you.
-- Surah Al-Imran (3), Verse 159
+- Surah Al-Imran (3), Verse 159 [^4]
 
 O Prophet, if you had been **فظ** (rude). **فظ** (rude) means rude. In English, it's called rude. If you had been rude and ill-spoken, your tongue would have been foul. **فظ** (rude) and **غليظ القلب** (harsh in heart), and if your heart had been filled only with malice, hatred, animosity, and enmity and all these things, then no one would come near you; everyone would stay away from you. Now, its interpretation is different, which I don't know if I can explain or not, but I will explain it anyway.
 
@@ -116,37 +118,37 @@ So you see, the verse we just recited, **خذ العفو** (Hold to forgiveness)
 
 **المؤمنون بالمعروف والناهون عن المنكر**
 The believing men and believing women are allies of one another. They enjoin what is right and forbid what is wrong.
-- Surah At-Tawbah (9), Verse 71
+- Surah At-Tawbah (9), Verse 71 [^5]
 
 What is the sign of a believer? They enjoin what is right, meaning people always command goodness and forbid evil. This is the sign of a believer. And when it came to hypocrites, what does the Quran say about hypocrites? That they are the ones who command evil and prevent people from goodness. So if someone does this, understand that they are a hypocrite. These are verses from Surah At-Tawbah. Or, for example, the verse from Surah Luqman. Hazrat Luqman, who was a very great sage, told his son:
 
 **يا بني أقم الصلاة**
 O my son, establish prayer
-- Surah Luqman (31), Verse 17
+- Surah Luqman (31), Verse 17 [^6]
 
 "Look, establish prayer. Establish prayer."
 
 **وأمر بالمعروف**
 and enjoin what is right
-- Surah Luqman (31), Verse 17
+- Surah Luqman (31), Verse 17 [^6]
 
 "and enjoin what is right."
 
 **وانها عن المنكر**
 and forbid what is wrong
-- Surah Luqman (31), Verse 17
+- Surah Luqman (31), Verse 17 [^6]
 
 "and forbid evil. Stop people from evil."
 
 **واصبر على ما أصابك**
 and be patient over what befalls you.
-- Surah Luqman (31), Verse 17
+- Surah Luqman (31), Verse 17 [^6]
 
 "and be patient over whatever calamity befalls you." And then Hazrat Luqman says:
 
 **إن ذلك من عزم الأمور**
 Indeed, that is of the matters [requiring] determination.
-- Surah Luqman (31), Verse 17
+- Surah Luqman (31), Verse 17 [^6]
 
 These four tasks are very tough, very difficult, not easy. Prayer is a difficult task, enjoining what is right is difficult, forbidding what is wrong is difficult, and being patient during calamities is also difficult. Hazrat Luqman says this, the Quran said it. **واصبر على ما أصابك** (and be patient over what befalls you.).
 
@@ -172,13 +174,15 @@ And that is why, whoever recognized the Imam, whoever truly recognized him, they
 
 Now, Janab Qambar was very old at that time. Very frail. But look, if a person's faith is young, then they never grow old. Is that clear? That's why the Imam wants to say, let me narrate a Hadith.
 
-**الْعَاقِلُ اِذَا شَابَ شَبَّ عَقْلُهٗ**
-When a wise person ages, his intellect becomes youthful. [^2]
+**الْعَاقِلُ اِذَا شَابَ شَبَّ عَقْلُهٗ**
+When a wise person ages, his intellect becomes youthful.
+- Saying of Ameerul Momineen (peace be upon him), Ghurar al-Hikam Page 295 [^7]
 
-When a **عاقل** (wise person) grows old, his intellect remains young. A wise person, right? A person of faith. A wise person, meaning a person of faith. When they grow old, their intellect remains young.
+When a **عاقل** (wise person) grows old, his intellect remains young.
 
-**وَالْجَاهِلُ اِذَا شَابَ شَبَّ جَهْلُهٗ**
-And when an ignorant person ages, his ignorance becomes youthful. [^2]
+**وَالْجَاهِلُ اِذَا شَابَ شَبَّ جَهْلُهٗ**
+And when an ignorant person ages, his ignorance becomes youthful.
+- Saying of Ameerul Momineen (peace be upon him), Ghurar al-Hikam Page 295 [^7]
 
 And when a **جاہل** (ignorant person) grows old, their ignorance becomes youthful. That's why you see all politicians, whether they are these politicians, politicians. No matter how old they get, they won't leave politics. Those who love the chair (of power), they are not ready to leave it, no matter how old they get. Their feet are hanging in the grave. But they won't leave it. Is that clear? We have a saying here:
 
@@ -190,35 +194,40 @@ A lion will die but won't eat grass. Oh, they won't leave that chair, no matter 
 So he called Janab Qambar. After calling Janab Qambar, when he was called, Janab Qambar came. Very old, frail. But his faith was solid. He asked, 'Is your name Abu Hamdan?' Abu Hamdan was Janab Qambar's kunya (agnomen). Then Janab Qambar said:
 
 **نَعَم**
-Yes. [^6]
+Yes.
+- Response of Janab Qambar, Al-Irshād Volume 1, Page 328 [^9]
 
 He said, 'Are you the slave of the Commander of the Faithful (Amir al-Mu'minin)?' **مولا** (master/slave) means slave. But in Arabic, **مولا** (master/slave) has two meanings. **مولا** (master/slave) means both master and slave. Do you understand? That is why, when you translate the Hadith of Ghadir, translate it correctly. We usually translate it incorrectly.
 
 **اللّٰہُمَّ وَالِ مَنْ وَالَا**
-O Allah, befriend whoever befriends him [^7]
+O Allah, befriend whoever befriends him
+- Hadith of Ghadir, Al-Kāfī Volume 1, page 293 [^10]
 
 'whoever takes the Commander of the Faithful (Amir al-Mu'minin) as a friend, then befriend him.' This is a wrong translation. If you translate it this way, then those people are correct in saying that the Holy Prophet, peace be upon him and his holy family, was merely announcing friendship. This translation is wrong. Its translation should be:
 
 **اللّٰہُمَّ وَالِ مَنْ وَالَا**
-O Allah, make him your servant who takes Ali as his master.  [^7]
+O Allah, make him your servant who takes Ali as his master.
+- Hadith of Ghadir, Al-Kāfī Volume 1, page 293 [^10]
 
 O Lord, take him as Your servant who takes the Commander of the Faithful (Amir al-Mu'minin) as his Master. Whoever takes the Commander of the Faithful (Amir al-Mu'minin) as his Master, then take him as Your servant. This is what **اللّٰہُمَّ وَالِ مَنْ وَالَا** (O Allah, make him your servant who takes Ali as his master) means. Otherwise, if you say 'friend,' then we have been saying and debating this for so long, and then you give this translation. So, translate very carefully. Anyway.
 
 Now, what did he ask? 'Are you a slave of the Commander of the Faithful (Amir al-Mu'minin)?' Janab Qambar replied, look: whoever stays at the door of the Commander of the Faithful (Amir al-Mu'minin) is educated. They possess knowledge (ma'rifat). At the door of the Commander of the Faithful (Amir al-Mu'minin) and the children of the Commander of the Faithful (Amir al-Mu'minin), there are no ignorant people. There are no ignorant people. They are educated, excellent speakers, and brave. They don't fear anyone. So Janab Qambar, in such old age, did not think, 'Let me live in peace for a few more days. Live comfortably.' No, what was his reply? Now listen to the reply. The answer of a person of knowledge. He said:
 
-**اللّٰہُ مَولَایَا وَأَمِیْرُ الْمُوْمِنِیْنَ عَلِیُّ بْنُ اَبِیْ طَالِبٍ وَلِیُّ نِعْمَتِیْ**
-Allah is my Master, and the Commander of the Faithful, Ali ibn Abi Talib, is the guardian of my blessings.  [^6]
+**اللّٰہُ مَولَایَا وَأَمِیْرُ الْمُوْمِنِیْنَ عَلِیُّ بْنُ اَبِیْ طَالِبٍ وَلِیُّ نِعْمَتِیْ**
+Allah is my Master, and the Commander of the Faithful, Ali ibn Abi Talib, is the guardian of my blessings.
+- Statement of Janab Qambar, Al-Irshād Volume 1, Page 328 [^9]
 
 My God is Allah. But the blessings He bestowed upon me, He gave them through the Commander of the Faithful (Amir al-Mu'minin). See what knowledge this is. He bestowed blessings upon me through the Commander of the Faithful (Amir al-Mu'minin). Now he flared up; he used to get very angry. Especially when Hajjaj would do all this, he would usually finish it in a state of drunkenness. At that time, he would get very angry. When he heard this answer, then do you know what the habit of those people was, all those big kings? What was their habit? To hear 'yes sir'. Now if someone replied like that, it was not their habit to hear it. So he asked, he ordered, 'Disassociate from the religion of the Commander of the Faithful (Amir al-Mu'minin).' Disassociate from the religion of the Commander of the Faithful (Amir al-Mu'minin). Disassociate. Disassociate, saying you hate the Commander of the Faithful (Amir al-Mu'minin). So Qambar replied: 'I will,' listen to my answer now, 'I will, if you can bring a better religion than that of the Commander of the Faithful (Amir al-Mu'minin).' A better religion than the Commander of the Faithful (Amir al-Mu'minin)'s. Look, a comparative study. Wasn't it a comparative study? Within one single sentence, a complete comparative study took place. 'Bring forth a better religion than that of the Commander of the Faithful (Amir al-Mu'minin).' The Quran says:
 
-**فَبُهِتَ الَّذِي كَفَرَ**
+**فَبُهِتَ الَّذِي كَفَرَ**
 So the one who disbelieved was confounded.
-- Surah Al-Baqarah (2), Verse 258
+- Surah Al-Baqarah (2), Verse 258 [^8]
 
 The disbeliever was stunned, bewildered and confounded. He did not know what hit him. He said, 'Alright, then prepare for death.' Qambar said, 'No problem.' Now look at his arrogance. Now arrogance was speaking loudly. 'By what method do you wish to die now?' He said, 'I leave that to you. Kill me however you wish.' He asked, 'Why?' He said, 'My Master, the Commander of the Faithful (Amir al-Mu'minin), had said that your killer, Qambar, will kill you in the same way you kill him during the Raj'at (return).' Is that clear? Look at the level of faith. He said, 'Alright, I will slaughter you the way sheep and goats are slaughtered.' Qambar said, and it is written in the Hadith:
 
 **فَذَبَحَهُ**
-So he slaughtered him. [^6]
+So he slaughtered him.
+- Account of Janab Qambar's martyrdom, Al-Irshād Volume 1, Page 328 [^9]
 
 He slaughtered him and, just as they cut things into pieces, he cut Qambar into pieces. He was already drunk anyway. So this is the level. This is called 'ma'rifat' (knowledge). But you see, till the last moment, Qambar remained steadfast on his religion. Till the last moment. And he was rather enjoying it. That Allah granted him the privilege to be martyred for the sake of the Commander of the Faithful (Amir al-Mu'minin). You see, this is the level of faith. Now, for example, if a person like us receives even a slight threat, they would say, 'No, brother, whatever you say, we are performing taqiyya (dissimulation).' Meaning, this has happened as a fact. That now, in one class, when we were teaching Hadith, a student himself asked, 'Sir, shouldn't they have performed taqiyya (dissimulation)?' We said, 'Brother, their level was not your level.'
 
@@ -232,29 +241,33 @@ That's why, if we preach religion, this is a very important point. Look, why do 
 
 So look, what is stated in the narrations, what is in the Hadith? Now listen carefully to what the Hadith of the Imam says.
 
-**لَا تَنْظُرُوا إِلَى كَثْرَةِ صَلَاتِهِمْ وَ صَوْمِهِمْ وَ كَثْرَةِ الْحَجِّ وَ الْمَعْرُوفِ وَ تَنْتَنَتِهِمْ بِاللَّيْلِ**
-Do not look at the abundance of their prayers, their fasting, their numerous pilgrimages, their acts of kindness, and their crying at night. [^3]
+**لَا تَنْظُرُوا إِلَى كَثْرَةِ صَلَاتِهِمْ وَ صَوْمِهِمْ وَ كَثْرَةِ الْحَجِّ وَ الْمَعْرُوفِ وَ تَنْتَنَتِهِمْ بِاللَّيْلِ**
+Do not look at the abundance of their prayers, their fasting, their numerous pilgrimages, their acts of kindness, and their crying at night.
+- Hadith of Prophet Muhammad (peace be upon him and his holy progeny), al-Amālī Page 303 [^11]
 
 Do not look at their abundant prayers. The Imam states. Do not look at abundant prayers, do not look at abundant fasting. Do not look at abundant pilgrimages. Oh, he prays a lot. He fasts a lot. He performs many pilgrimages, so many pilgrimages. He has done all these things so many times. He spends a lot, he gives to people. He is very generous. He performs excellent **نمازِ شب** (night prayer). We can give examples for each one. For prayer and fasting, the best example was that of the Khawarij. It is written in history books that the Khawarij prayed so much that a mark of prostration formed on their foreheads, like the knee of a camel. Have you ever seen a camel's knee? Suddenly, how the whole camel is yellow, but its knee is black. Because when a camel sits, due to sitting, its knee becomes black because it stands up and sits down. So, the example given in history is that the Khawarij prostrated so much that their foreheads became like camels' knees. They prayed so much. They fasted so much. But when the Battle of Siffin occurred and the opponents raised the Quran (on spears), the Master of the Universe (Commander of the Faithful (Amir al-Mu'minin)) said, 'This is not the Quran; these are just such books, they have no value.' The Quran did not descend below their throats. But these people who did not have the knowledge of the Commander of the Faithful (Amir al-Mu'minin). They said, 'No, we will not accept it.' And in the end, those very people were the ones who killed the Commander of the Faithful (Amir al-Mu'minin). These were the same people, of course, who did it on the orders of someone else, as I mentioned at the beginning. The one who became ruler later, that was the same system. Is that clear to you?
 
 Let me give you another example, of Hajj. Hajj should be performed, we are not saying it shouldn't be. This doesn't mean prayers shouldn't be performed. Praying, fasting, all are obligatory. But until there is the guardianship of the Imam, until there is the guardianship of the Commander of the Faithful (Amir al-Mu'minin), all this is useless. Why? Because the guardianship of the Commander of the Faithful (Amir al-Mu'minin) is the spirit of worship. If worship is without spirit, it will be dead worship. It has no value or worth. Even that worship will not be called by its name, just as you don't call a deceased person by their name. You say, 'Did the body arrive or not?' Similarly, angels will ask, 'Did the body of his prayer arrive or not?'
 
-**وَ کَثْرَةِ الْحَجِّ**
-And their numerous pilgrimages [^3]
+**وَ کَثْرَةِ الْحَجِّ**
+And their numerous pilgrimages
+- Hadith of Prophet Muhammad (peace be upon him and his holy progeny), al-Amālī Page 303 [^11]
 
 Now, let me give an example of Hajj. Abubasir went for Hajj. The Sixth Imam, peace be upon them, was with him. Abubasir heard so many **لَبَّيْكَ اللَّهُمَّ لَبَّيْكَ** (Here I am, O Allah, here I am). You know how they make all sorts of sounds. Abubasir also heard that voice. Abubasir said, **مَا اَكْثَرَ الْحُجَّاج** (How many pilgrims there are!). How many pilgrims had increased so much at that time. So the Imam said, 'These are not pilgrims.' The Imam used a specific word. Abubasir said, 'Master, they are saying **لَبَّيْكَ اللَّهُمَّ لَبَّيْكَ** (Here I am, O Allah, here I am).' So he said, 'Do you want to see?' The Imam placed his hand, his fingers, on Abubasir's eyes, and he said, 'All sorts of animals.' Different kinds of animals. Abubasir was alarmed after seeing it. He said, 'Master, make me blind again, because he was blind, wasn't he?' 'Master, make me sighted again.' So the Imam then approved. He became blind again. Why? He said, the Imam says that they came for Hajj but without the guardianship of the Imam. Without the guardianship of the Imam, there is no benefit from Hajj. No benefit at all. Until there is guardianship.
 
 Similarly, the Imam says:
 
-**وَتَنْتَنَتِهِمْ بِاللَّيْلِ**
-and their crying at night [^3]
+**وَتَنْتَنَتِهِمْ بِاللَّيْلِ**
+and their crying at night
+- Hadith of Prophet Muhammad (peace be upon him and his holy progeny), al-Amālī Page 303 [^11]
 
 What is 'tan-tanah' called in Arabic? Night, meaning tan-tanah, meaning crying loudly. Many people have this habit of crying loudly, lamenting. And **باللیل** (at night), meaning during the night. They cry very loudly, they shout a lot, they cry. The Imam says, 'Don't go by all this.' 'Don't be impressed by these things.' This also happened with the Imam, the Master of the Universe (Commander of the Faithful (Amir al-Mu'minin)) and Kumail. Both were walking at night from the Mosque of Kufa, past midnight, and a sound of intense crying and Quran recitation was coming from a house. He was crying while reciting the Quran. So Kumail was very impressed. He said, 'Master, this is great!' The Imam said, 'He is a dweller of hell.' 'A dweller of hell?' Kumail, look, Kumail should have accepted it then. But what was Kumail saying? 'Master, he's one of us.' 'He's our own.' The Imam gave no reply, no reply at all. But when the Battle of Nahrawan happened against the Kharijites. Then the Imam killed many people in it. It was the Imam's habit to circle around after killing, and while circling, he came to his body. And he told Kumail, **کمیل تعال ہنا** (Kumail, come here), 'Come here. Remember that night? The one who was reciting Quran and crying, this is him.' Who was killed by the sword of the Commander of the Faithful (Amir al-Mu'minin). Killed by the sword of the Commander of the Faithful (Amir al-Mu'minin), by Dhul-Fiqar, and became a dweller of hell. This is him. So what should be the criterion?
 
 The Imam says, 'Now, then, how should one recognize? Not through prayer, nor through fasting, nor through Hajj, nor through their crying. So how to recognize?' The Imam said:
 
 **فَلَكِنْ انْظُرُوا إِلَى صِدْقِ الْحَدِيثِ وَ أَدَاءِ الْأَمَانَةِ**
-But rather, look at the truthfulness of their speech and the fulfillment of their trusts. [^3]
+But rather, look at the truthfulness of their speech and the fulfillment of their trusts.
+- Hadith of Prophet Muhammad (peace be upon him and his holy progeny), al-Amālī Page 303 [^11]
 
 'See if he speaks the truth when he talks, or not? And if someone entrusts him with something, does he act with trustworthiness or not? Or does he betray the trust?' Because these two are things where religion is not considered, where faith is not considered. If you have to speak the truth, speak the truth in front of everyone, regardless of their religion or faith. Because it is the decision of intellect to speak the truth in every situation, except for certain conditions, for example, do not speak at a time when there is a dispute. There are just one or two such exceptions, nothing else. And if someone gives you something in trust, regardless of their religion or faith. But if he brought and placed a trust, then what is the usual principle of trustworthiness? To return the trust exactly as it was given. But that is not the principle in Islam. What is the principle in Islam? If someone gives a trust, return it by adding something of your own, by adding a little from your own possession. **سبحان اللہ** (Glory be to Allah). Now, what is its wisdom? Someone told us, 'Brother, I am going on a journey, please keep these 50,000 rupees for me.' We kept it. He returned from the journey and said, 'Brother, I gave you 50,000.' So, what was our task? To return the 50,000, saying 50,000 was given. What logic is this, to add something from your own side? What logic is this? Isn't it strange? The logic is that you appreciate him for considering you trustworthy. **واہ واہ** (Wow wow). **سبحان اللہ** (Glory be to Allah). He trusted you that you would not betray his trust. **واہ واہ واہ** (Wow wow wow). Why? Because he valued your religion. **واہ واہ واہ** (Wow wow wow). So tell me, does our religion teach that you should not just return the trust? But also give him some other things along with it, saying, 'Here, take this from our side as well.' Tell me, who teaches like this? Which religion does this? This is a very important thing. It is very important in enjoining what is right, and God willing, we will continue to present more details about it.
 
@@ -263,12 +276,14 @@ But rather, look at the truthfulness of their speech and the fulfillment of thei
 So the Imam says that regarding **صدق الحدیث** (truthfulness of speech), see how much intellect there is. That is why, look, a man came to the Sixth Imam, peace be upon them, and said, 'So-and-so is a Shi'a. He is excellent.' And he praised him a lot. Meaning, he prays a lot, he fasts a lot, he goes for Hajj and so on. The Imam only asked him one question. And what was that question?
 
 **کیف عقلہ**
-How is his intellect? [^5]
+How is his intellect?
+- Question of Imam al-Sadiq (peace be upon him), Al-Kāfī Volume 1, Page 24 [^12]
 
 How much intellect does he possess? Does he have intellect or not? It's strange, see what the question is. He is praising someone, and the Imam is asking about his intellect. So he says, 'He's only got a little bit.' The Imam said, 'Then all his deeds are useless.' Because the standard of **ثواب و عقاب** (reward and punishment), the level of reward and punishment, is according to intellect. When Allah created intellect, He said this:
 
 **بک او بک اصیب و بک اعاقب**
-By you I will reward, and by you I will punish. [^4]
+By you I will reward, and by you I will punish.
+- Divine address to intellect, Kanz al-Fawā'id Volume 1, Page 57 [^13]
 
 'Through you, I will give reward, and through you, I will give punishment.' Whoever uses intellect, I will reward him; whoever stays away from intellect, I will punish him. Therefore, it is very important for a person to use their intellect. And when we preach to someone, express those things that are acceptable to their intellect. If something is not acceptable to intellect, then there is no benefit in saying those things in front of them. Is that clear?
 
@@ -279,12 +294,14 @@ Look, when stubbornness enters something, enmity arises there. For example, ther
 So listen to a Hadith, I will explain it a little, then God willing, the rest tomorrow. Listen to the Hadith, and whose saying is this Hadith? It is the saying of the Commander of the Faithful (Amir al-Mu'minin), peace be upon him. He says:
 
 **أتحبون ألا يكذب الله ورسوله**
-Do you wish that Allah and His Messenger are not denied? [^9]
+Do you wish that Allah and His Messenger are not denied?
+- Teaching of Ameerul Momineen (peace be upon him), Al-Ghaybah Page 33–34 [^15]
 
 Do you wish that Allah and His Messenger, peace be upon him and his holy family, are not denied? That they are not denied, that they are not refuted, that we deny and say we don't believe in Allah, we don't believe in the Holy Prophet, peace be upon him and his holy family. Do you want that to happen? Is the question understood? The Imam says, 'What am I asking?' Do you want people to become enemies of Allah and His Messenger, peace be upon him and his holy family? Of course, everyone will say no. The Imam says:
 
 **حدثوا الناس بما يعرفون وامسكوا بما ينكرون**
-Speak to people about what they know, and refrain from what they do not understand. [^9]
+Speak to people about what they know, and refrain from what they do not understand.
+- Teaching of Ameerul Momineen (peace be upon him), Al-Ghaybah Page 33–34 [^15]
 
 **سبحان اللہ** (Glory be to Allah), **سبحان اللہ** (Glory be to Allah), **سبحان اللہ** (Glory be to Allah)! But look at what the Imam's saying is. Now, what have we done? Generally, preachers, in most places, are like that. They immediately ask the youth first, 'You don't do this? Yes, you don't do that.' Now, the poor fellow who used to come in front of the Maulana (religious scholar) also stops coming. He says, 'If I do this, they will ask in front of everyone. My honor will be lost. So let it be.' And we know one person who stopped going to the mosque. Because he did something that many people do. Meaning, **كلا سوف تعلمون ثم كلا سوف تعلمون** (Nay, you will soon come to know, then nay, you will soon come to know). It is clear he kept it absolutely clean. So they directly told him, 'Brother, why don't you keep it?' No, look, he is coming to the mosque, that's fine. Does he truly have knowledge of Allah? Does he truly have knowledge of the Holy Prophet, peace be upon him and his holy family? Does he recognize religion? Does he recognize Sharia (Islamic law)? First tell him, explain to him who Allah is? Who is the Holy Prophet, peace be upon him and his holy family?
 
@@ -294,31 +311,35 @@ Look, let me give you an example, just examples for children. Okay? A boy is wal
 
 So when we bring them to the next level of **معروف** (good/known), if we explain to that girl, 'Daughter, hijab is obligatory for you so that you understand that when you go out without hijab, this male gender looks at women differently.' You don't understand, daughter; understand this, if we explain well what this male gender is, and these are not our words in the Quran. God willing, we will explain it another time; it's a verse from the Quran. The Quran says that because there is sin in their hearts, Allah tells the **ازواج نبی** (wives of the Prophet), peace be upon them, not to speak softly to them. Allah is commanding in the Quran, and this is a command for all women, not to speak softly to them; speak strictly to them. 'When they come for food, give them food and then say, "Goodbye, go."' To speak strictly, right? But nowadays, what do you teach receptionists? Isn't this what's taught? Why, brother, it's for business. Are you paying attention or not? This thing is against intellect, why? It is against intellect because it is an invitation to sin. Here, an invitation to sin is being given. And if we explain it to someone rationally like this, they will understand the point. And then at the next level, that is, Allah and His Messenger, peace be upon him and his holy family, like this. Lady **زہرا** (Zahra), peace be upon them, likes this. If you believe in Lady **زہرا** (Zahra), peace be upon them, why did Lady **زہرا** (Zahra), peace be upon them, wear hijab? She wore hijab for that reason. Every valuable thing is kept covered. Every valuable thing, if you have wealth, if you have diamonds, gold, etc., you keep it carefully in a safe. You keep it in a bank locker, you keep it safely. Do you keep it on the street? And especially if someone is in a country where, for example, we've heard this happens a lot in Africa. Have you heard that if you walk on the road wearing gold, or a valuable watch, or an expensive mobile phone, people snatch it after beating you? So, many people don't wear gold there; they come here and fulfill all their desires. We are talking about men. In Islam, gold is forbidden for men. It is adornment for women, not for men. So this is a very important thing. Every valuable thing. And similarly, God willing, we will discuss each remaining point about **معروف** (good/known). So that's why, look, this thing is not easy. This thing needs to be explained. Youth, explain it. So when you explain it to the youth, the youth will automatically be trained.
 
-### The Ma'rifat of Death: The Example of Qasim ibn Hassan (AS)
+### The Ma'rifat of Death: The Example of Qasim ibn Hassan (peace be upon him)
 
 And that is why today, we mention a young man in our lamentations whose age was only 13 years. But Sayyid al-Shuhada (Master of Martyrs) asks him a question. And what is that question? The grandson asks:
 
 **کیف وجدت الموت؟ یا حبیبی**
-How did you find death, O my beloved son? [^10]
+How did you find death, O my beloved son?
+- Question of Imam Husayn (peace be upon him) to Qasim, Hidayatul Kubra Page 204 [^16]
 
 'Son Qasim, how did you find death?' Qasim replied:
 
 **أَحْلَى مِنَ الْعَسَلِ**
-Sweeter than honey. [^10]
+Sweeter than honey.
+- Reply of Qasim ibn Hassan (peace be upon him), Hidayatul Kubra Page 204 [^16]
 
 Sweeter than honey. Now, tell me one thing: if someone asks you about something, Qasim is alive, isn't he? He hasn't died yet. He hasn't tasted the cup of martyrdom yet. So how is Qasim saying? That it's sweeter than honey. So it is known that in the household of the family of Muhammad, peace be upon them, children are trained to prepare for death beforehand. O my beloved, and they don't worry about death.
 
 That is why, on the night of Ashura, when Husayn was reciting the register of martyrdom, he mentioned everyone's name but did not mention Qasim's name. When the child saw that his name was not in the register of martyrdom, Qasim went to a corner and started crying. That his name was not in the register of martyrdom. While crying, he suddenly remembered that when his father was leaving this world, he had tied an amulet on his hand and said, 'Son, when a very great calamity befalls you, open this amulet; it will contain the solution to your problem.' As soon as Qasim opened the amulet, it was written in it:
 
 **بني قاسم أدرك عمك الحسين**
-O my son Qasim, help your uncle Husayn. [^10]
+O my son Qasim, help your uncle Husayn.
+- Message from Imam Hassan (peace be upon him) in the amulet, Hidayatul Kubra Page 204 [^16]
 
 'Son Qasim, help your uncle Husayn when Husayn is all alone in Karbala. And if he doesn't give permission, keep insisting until your uncle gives permission.' It's the night of Ashura. Qasim came with the amulet and showed his father's writing to Husayn. As soon as Husayn saw his brother's writing, Husayn said, 'Son Qasim, this is not your brother's writing; it is a message of your death.' Qasim said, 'Uncle, what should I do? It is my father's command.' Husayn consoled Qasim, 'Qasim, everyone has to die tomorrow, and Qasim, I only did not mention your name; otherwise, your name was also in the register of martyrdom, and not only yours but also your brother Ali Asghar's.'
 
 So, on one hand, Qasim was happy that his name was in the register of martyrdom. On the other hand, the honorable child of Banu Hashim writhed and began to ask, 'Uncle, will the wicked enter the tents?'
 
 **هل يسلّون إلى الخيام**
-Will they reach the tents? [^10]
+Will they reach the tents?
+- Concern of Qasim ibn Hassan (peace be upon him), Hidayatul Kubra Page 204 [^16]
 
 So I will say, O honorable child of Banu Hashim, he could not hear that the wicked would enter the tents. Now imagine Imam Zayn al-Abidin, Sayyid Sajjad, peace be upon them, on the afternoon of Ashura, seeing the tents ablaze and the wicked advancing towards the tents. And Sayyid Sajjad, peace be upon them, is seeing the whole scene: chadors being snatched from the heads of the ladies, and lashes being inflicted.
 
@@ -334,7 +355,7 @@ The day of Ashura arrived, the chain of martyrdoms began until that point came w
 | :- | :- |
 | **Universal Quranic Address** | Quranic commands often address the Prophet but are intended for all believers, like the Wilayah (guardianship) message in Ghadir. |
 | **Three Core Commands of Surah Al-A'raf 199** | The verse instructs believers to embrace forgiveness, command what is customary (*Ma'ruf*), and turn away from the ignorant. |
-| **Essence of Forgiveness and Gentleness** | Forgiveness (*Afw*) extends beyond pardoning to dealing with others with extreme softness and politeness, as exemplified by the Holy Prophet (PBUH). |
+| **Essence of Forgiveness and Gentleness** | Forgiveness (*Afw*) extends beyond pardoning to dealing with others with extreme softness and politeness, as exemplified by the Holy Prophet (peace be upon him and his holy progeny). |
 | **True Meaning of *Ma'ruf* (Good/Customary)** | *Ma'ruf* refers to actions and principles that are accepted by intellect and bring inner enjoyment to the doer, not merely religious obligations. |
 | **Ma'rifat (Recognition) as Supreme *Ma'ruf*** | The highest form of *Ma'ruf* is the recognition of Allah, the Prophet, and the Imams, which brings immense spiritual pleasure and inspires ultimate sacrifice. |
 | **Intellect as the Standard for Reward and Punishment** | A person's deeds and their value are judged according to their intellect; acting against reason diminishes the worth of any worship. |
@@ -367,136 +388,182 @@ The day of Ashura arrived, the chain of martyrdoms began until that point came w
 ## 📚 Detailed References
 
 [^1]: **al-Kāfī – Volume 2, Page 631**
+      > **Source:** الكافي (ط - الإسلامية) ؛ ج‏2 ؛ ص631
+      >
       > **Arabic:**
-      > الكافي (ط - الإسلامية) ؛ ج‏2 ؛ ص631
-      > بُكَيْرٍ عَنْ أَبِي عَبْدِ اللَّهِ ع قَالَ:
-      > نَزَلَ الْقُرْآنُ بِإِيَّاكِ أَعْنِي وَ اسْمَعِي‏ يَا جَارَةُ
+      > بُكَيْرٍ عَنْ أَبِي عَبْدِ اللَّهِ ع قَالَ:
+      > نَزَلَ الْقُرْآنُ بِإِيَّاكِ أَعْنِي وَ اسْمَعِي‏ يَا جَارَةُ
       >
       > **English:**
       > Bukayr narrated from Abu Abdillah, Imam al-Sadiq (peace be upon him), who said:
-      > "The Qur’an was revealed with the expression: ‘I speak to you, but listen, O neighbor!’"
+      > "The Qur'an was revealed with the expression: 'I speak to you, but listen, O neighbor!'"
+      >
+      > **Context:** Teaching that Quranic commands often have universal application beyond their apparent addressee.
 
-[^2]: **Ghurar al-Hikam – Page 295**
+[^2]: **Surah Al-Ma'idah (5), Verse 67**
       > **Arabic:**
-      > غرر الحكم و درر الكلم ؛ ص295
+      > يَا أَيُّهَا الرَّسُولُ بَلِّغْ مَا أُنزِلَ إِلَيْكَ مِن رَّبِّكَ ۖ وَإِن لَّمْ تَفْعَلْ فَمَا بَلَّغْتَ رِسَالَتَهُ ۚ وَاللَّهُ يَعْصِمُكَ مِنَ النَّاسِ
+      >
+      > **English:**
+      > O Messenger, announce that which has been revealed to you from your Lord; and if you do not, then you have not conveyed His message. And Allah will protect you from the people.
+      >
+      > **Context:** Known as the verse of Ghadir, commanding the Prophet to announce the Wilayah (guardianship) of Imam Ali.
+
+[^3]: **Surah Al-A'raf (7), Verse 199**
+      > **Arabic:**
+      > خُذِ الْعَفْوَ وَأْمُرْ بِالْعُرْفِ وَأَعْرِضْ عَنِ الْجَاهِلِينَ
+      >
+      > **English:**
+      > Take what is given freely, enjoin what is customary [and right], and turn away from the ignorant.
+      >
+      > **Context:** Central verse of this discourse containing three divine commands for authentic spiritual practice.
+
+[^4]: **Surah Al-Imran (3), Verse 159**
+      > **Arabic:**
+      > فَبِمَا رَحْمَةٍ مِّنَ اللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ الْقَلْبِ لَانفَضُّوا مِنْ حَوْلِكَ
+      >
+      > **English:**
+      > So by mercy from Allah, [O Muhammad], you were lenient with them. And if you had been rude [in speech] and harsh in heart, they would have disbanded from about you.
+      >
+      > **Context:** Describing the gentle character of Prophet Muhammad (peace be upon him and his holy progeny) as a mercy from Allah.
+
+[^5]: **Surah At-Tawbah (9), Verse 71**
+      > **Arabic:**
+      > وَالْمُؤْمِنُونَ وَالْمُؤْمِنَاتُ بَعْضُهُمْ أَوْلِيَاءُ بَعْضٍ ۚ يَأْمُرُونَ بِالْمَعْرُوفِ وَيَنْهَوْنَ عَنِ الْمُنكَرِ
+      >
+      > **English:**
+      > The believing men and believing women are allies of one another. They enjoin what is right and forbid what is wrong.
+      >
+      > **Context:** Defining the characteristics of true believers.
+
+[^6]: **Surah Luqman (31), Verse 17**
+      > **Arabic:**
+      > يَا بُنَيَّ أَقِمِ الصَّلَاةَ وَأْمُرْ بِالْمَعْرُوفِ وَانْهَ عَنِ الْمُنكَرِ وَاصْبِرْ عَلَىٰ مَا أَصَابَكَ ۖ إِنَّ ذَٰلِكَ مِنْ عَزْمِ الْأُمُورِ
+      >
+      > **English:**
+      > O my son, establish prayer and enjoin what is right and forbid what is wrong and be patient over what befalls you. Indeed, [all] that is of the matters [requiring] determination.
+      >
+      > **Context:** Luqman's advice to his son about the four difficult spiritual tasks.
+
+[^7]: **Ghurar al-Hikam – Page 295**
+      > **Source:** غرر الحكم و درر الكلم ؛ ص295
+      >
+      > **Arabic:**
       > إذا شاب العاقل شبّ عقله و إذا شابّ الجاهل شبّ جهله
       >
       > **English:**
       > "If a wise person grows old, his wisdom matures; and if an ignorant person grows old, his ignorance matures."
+      >
+      > **Context:** Teaching about how age affects the wise versus the ignorant differently.
 
-[^3]: **al-Amālī (al-Ṣadūq) – Page 303**
+[^8]: **Surah Al-Baqarah (2), Verse 258**
       > **Arabic:**
-      > الأمالي (للصدوق) ؛ ص303
-      > 6- حَدَّثَنَا أَبِي رَحِمَهُ اللَّهُ قَالَ حَدَّثَنِي أَحْمَدُ بْنُ عَلِيٍّ التَّفْلِيسِيُّ عَنْ إِبْرَاهِيمَ بْنِ مُحَمَّدٍ الْهَمْدَانِيِّ عَنْ مُحَمَّدِ بْنِ عَلِيٍّ الْهَادِي عَنْ عَلِيِّ بْنِ مُوسَى الرِّضَا ع عَنِ الْإِمَامِ مُوسَى بْنِ جَعْفَرٍ عَنِ الصَّادِقِ جَعْفَرِ بْنِ مُحَمَّدٍ عَنِ الْبَاقِرِ مُحَمَّدِ بْنِ عَلِيٍّ عَنْ سَيِّدِ الْعَابِدِينَ عَلِيِّ بْنِ الْحُسَيْنِ عَنْ سَيِّدِ شَبَابِ أَهْلِ الْجَنَّةِ الْحُسَيْنِ عَنْ سَيِّدِ الْأَوْصِيَاءِ عَلِيٍّ عَنْ سَيِّدِ الْأَنْبِيَاءِ مُحَمَّدٍ ص قَالَ: لَا تَنْظُرُوا إِلَى‏ كَثْرَةِ صَلَاتِهِمْ‏ وَ صَوْمِهِمْ‏ وَ كَثْرَةِ الْحَجِّ وَ الْمَعْرُوفِ وَ طَنْطَنَتِهِمْ بِاللَّيْلِ انْظُرُوا إِلَى صِدْقِ الْحَدِيثِ وَ أَدَاءِ الْأَمَانَةِ.
+      > فَبُهِتَ الَّذِي كَفَرَ
       >
       > **English:**
-      > My father, may Allah have mercy on him, narrated to us. He said: Aḥmad ibn ʿAlī al-Taflīsī narrated to me from Ibrāhīm ibn Muḥammad al-Hamadanī from Muḥammad ibn ʿAlī al-Hādī from Ali ibn Musa al-Ridha (peace be upon him), from Imam Musa ibn Jaʿfar (peace be upon him), from Jaʿfar ibn Muḥammad al-Ṣādiq (peace be upon him), from Muhammad ibn Ali al-Baqir (peace be upon him), from the Master of the Worshippers, Ali ibn al-Husain (peace be upon him), from the Master of the Youth of Paradise, Imam al-Husain (peace be upon him), from the Master of the Successors, Ameerul Momineen, Imam Ali (peace be upon him), from the Master of the Prophets, the Messenger of Allah (peace be upon him and his holy progeny). He said:
-      > "Do not look at the abundance of their prayers, their fasting, their Hajj, their well-known deeds, or their murmuring at night. Rather, look at the truthfulness of their speech and the fulfillment of the trust."
+      > So the one who disbelieved was confounded.
+      >
+      > **Context:** Describing how disbelievers become speechless when confronted with truth.
 
-[^4]: **Kanz al-Fawā’id – Volume 1, Page 57**
+[^9]: **Al-Irshād fī Ma'rifat Ḥujaj Allāh 'alā al-'Ibād, Volume 1, Page 328**
+      > **Source:** الإرشاد في معرفة حجج الله على العباد ؛ ج‏1 ؛ ص328
+      >
       > **Arabic:**
-      > كنز الفوائد ؛ ج‏1 ؛ ص57
-      > مِنْ أَنَّ أَوَّلَ شَيْ‏ءٍ خَلَقَ اللَّهُ تَعَالَى الْعَقْلُ فَقَالَ لَهُ أَقْبِلْ فَأَقْبَلَ ثُمَّ قَالَ لَهُ أَدْبِرْ فَأَدْبَرَ فَقَالَ وَ عِزَّتِي وَ جَلَالِي مَا خَلَقْتُ خَلْقاً هُوَ أَحَبُّ إِلَيَّ مِنْكَ بِكَ أُعْطِي وَ بِكَ أَمْنَعُ وَ بِكَ أُثِيبُ وَ بِكَ‏ أُعَاقِبُ‏ وَ عِزَّتِي وَ جَلَالِي لَا أَكْمَلْتُكَ إِلَّا فِيمَنْ أَحْبَبْتُ
+      > مَا رَوَاهُ أَصْحَابُ السِّيرَةِ مِنْ طُرُقٍ مُخْتَلِفَةٍ: أَنَّ الْحَجَّاجَ بْنَ يُوسُفَ الثَّقَفِيَّ قَالَ ذَاتَ يَوْمٍ أُحِبُّ أَنْ أُصِيبَ رَجُلًا مِنْ أَصْحَابِ أَبِي تُرَابٍ فَأَتَقَرَّبَ إِلَى اللَّهِ بِدَمِهِ... قَالَ اللَّهُ مَوْلَايَ وَ أَمِیرُ الْمُؤْمِنِینَ عَلِيٌ‏ وَلِيُ‏  نِعْمَتِی... فَأَمَرَ بِهِ فَذُبِحَ‏
       >
       > **English:**
-      > Among what has been reported is that the first thing Allah, the Exalted, created was the intellect. He said to it: “Come forward,” so it came forward. Then He said to it: “Go back,” so it went back. Then He said: “By My might and My majesty, I have not created a creation more beloved to Me than you. Through you I give, and through you I withhold, and through you I reward, and through you I punish. By My might and My majesty, I do not perfect you except in the one whom I love.”
+      > What the historians have narrated through various chains: that al-Hajjāj ibn Yūsuf al-Thaqafī said one day, "I wish to strike down a man from among the companions of Abū Turāb..." He replied, "Allah is my Master, and Ameerul Momineen, Imam Ali (peace be upon him), is the guardian of my blessing..." So he ordered for him to be slaughtered.
+     
+      >
+      > **Context:** The steadfastness of Janab Qambar as an example of true Ma'rifat, showing unwavering loyalty to Imam Ali even unto death.
 
-[^5]: **Al-Kāfī (Islamic Publishing), Volume 1, Page 24, Tradition 19**
+[^10]: **Al-Kāfī (Islamic Publishing), Volume 1, page 293, Tradition 3**
+      > **Source:** الكافي (ط - الإسلامية) ؛ ج‏1 ؛ ص293-294
+      >
       > **Arabic:**
-      > الكافي (ط - الإسلامية) ؛ ج‏1 ؛ ص24
-      > 19- عَلِيُّ بْنُ إِبْرَاهِيمَ عَنْ أَبِيهِ عَنْ يَحْيَى بْنِ الْمُبَارَكِ عَنْ عَبْدِ اللَّهِ بْنِ جَبَلَةَ عَنْ إِسْحَاقَ بْنِ عَمَّارٍ عَنْ أَبِي عَبْدِ اللَّهِ ع قَالَ: قُلْتُ لَهُ جُعِلْتُ فِدَاكَ إِنَّ لِي جَاراً كَثِيرَ الصَّلَاةِ كَثِيرَ الصَّدَقَةِ كَثِيرَ الْحَجِّ لَا بَأْسَ بِهِ‏  قَالَ فَقَالَ يَا إِسْحَاقُ كَيْفَ عَقْلُهُ قَالَ قُلْتُ لَهُ جُعِلْتُ فِدَاكَ لَيْسَ لَهُ عَقْلٌ قَالَ فَقَالَ لَا يَرْتَفِعُ بِذَلِكَ مِنْهُ. 
+
+      > فَقَالَ ص مَنْ كُنْتُ مَوْلَاهُ فَعَلِيٌّ مَوْلَاهُ اللَّهُمَّ وَالِ مَنْ وَالاهُ وَ عَادِ مَنْ عَادَاهُ ثَلَاثَ مَرَّاتٍ
       >
       > **English:**
-      > Ali ibn Ibrahim, from his father, from Yahya ibn al-Mubarak, from ‘Abdullah ibn Jabalah, from Ishaq ibn ‘Ammar, from Abu Abdillah, Imam al-Sadiq (peace be upon him), who said:
-      > I said to him: “May I be ransomed for you! I have a neighbor who performs many prayers, gives a great deal of charity, and frequently performs Hajj. He is not bad.”
-      > He said: *“O Ishaq, how is his intellect?”*
-      > I said to him: “May I be your ransom, he has no intellect.”
-      > He said: *“Then none of that will be raised from him.”*
+      > Then the Messenger of Allah (peace be upon him and his holy progeny) said: "Whomsoever I am his master, then Ali is his master. O Allah, befriend whoever befriends him, and be hostile to whoever is hostile to him."—three times.
+      >
+      > **Context:** The famous Hadith of Ghadir establishing the Wilayah (guardianship) of Imam Ali.
 
-[^6]: **Al-Irshād fī Ma‘rifat Ḥujaj Allāh ‘alā al-‘Ibād, Volume 1, Page 328**
+[^11]: **al-Amālī (al-Ṣadūq) – Page 303**
+      > **Source:** الأمالي (للصدوق) ؛ ص303
+      >
       > **Arabic:**
-      > الإرشاد في معرفة حجج الله على العباد ؛ ج‏1 ؛ ص328
-      [في إخباره ع عما يقع على قنبر مولاه و مقتله‏]
-      > و من ذلك:
-      > مَا رَوَاهُ أَصْحَابُ السِّيرَةِ مِنْ طُرُقٍ مُخْتَلِفَةٍ: أَنَّ الْحَجَّاجَ بْنَ يُوسُفَ الثَّقَفِيَّ قَالَ ذَاتَ يَوْمٍ أُحِبُّ أَنْ أُصِيبَ رَجُلًا مِنْ أَصْحَابِ أَبِي تُرَابٍ فَأَتَقَرَّبَ إِلَى اللَّهِ بِدَمِهِ فَقِيلَ لَهُ مَا نَعْلَمُ أَحَداً كَانَ أَطْوَلَ صُحْبَةً لِأَبِي تُرَابٍ مِنْ قَنْبَرٍ مَوْلَاهُ فَبَعَثَ فِي طَلَبِهِ فَأُتِيَ بِهِ فَقَالَ لَهُ أَنْتَ قَنْبَرٌ قَالَ نَعَمْ قَالَ أَبُو هَمْدَانَ قَالَ نَعَمْ قَالَ مَوْلَى عَلِيِّ بْنِ أَبِي طَالِبٍ قَالَ اللَّهُ مَوْلَايَ وَ أَمِيرُ الْمُؤْمِنِينَ عَلِيٌ‏ وَلِيُ‏  نِعْمَتِي‏ قَالَ ابْرَأْ مِنْ دِينِهِ قَالَ فَإِذَا بَرِئْتُ مِنْ دِينِهِ تَدُلُّنِي عَلَى دِينٍ غَيْرِهِ أَفْضَلَ مِنْهُ فَقَالَ إِنِّي قَاتِلُكَ فَاخْتَرْ أَيَّ قِتْلَةٍ أَحَبَّ إِلَيْكَ قَالَ قَدْ صَيَّرْتُ ذَلِكَ إِلَيْكَ قَالَ وَ لِمَ قَالَ لِأَنَّكَ لَا تَقْتُلُنِي قِتْلَةً إِلَّا قَتَلْتُكَ مِثْلَهَا وَ لَقَدْ خَبَّرَنِي أَمِيرُ الْمُؤْمِنِينَ ع أَنَّ مَنِيَّتِي‏  تَكُونُ ذَبْحاً ظُلْماً بِغَيْرِ حَقٍّ قَالَ فَأَمَرَ بِهِ فَذُبِحَ‏ 
-      > . و هذا أيضا من الأخبار التي صحت عن أمير المؤمنين ع بالغيب و حصلت في باب المعجز القاهر و الدليل الباهر و العلم‏
-      > ______________________________
-      > (1) في «م» و هامش «ش»: مولى.
-      > (2) في «م» و هامش «ش»: ميتتي.
-      > (3) نقله العلّامة المجلسي في البحار 42: 126.
-      > الإرشاد في معرفة حجج الله على العباد، ج‏1، ص: 329
-      > الذي خص الله به حججه من أنبيائه و رسله و أوصيائه ع و هو لاحق بما قدمناه. 
+      > حَدَّثَنَا أَبِي رَحِمَهُ اللَّهُ... عَنْ سَيِّدِ الْأَنْبِيَاءِ مُحَمَّدٍ ص قَالَ: لَا تَنْظُرُوا إِلَى‏ كَثْرَةِ صَلَاتِهِمْ‏ وَ صَوْمِهِمْ‏ وَ كَثْرَةِ الْحَجِّ وَ الْمَعْرُوفِ وَ طَنْطَنَتِهِمْ بِاللَّيْلِ انْظُرُوا إِلَى صِدْقِ الْحَدِيثِ وَ أَدَاءِ الْأَمَانَةِ
       >
       > **English:**
-      > [Regarding his (peace be upon him) foretelling of what would happen to Qanbar, his servant, and his killing]
-      > Among those reports is what the historians have narrated through various chains: that al-Hajjāj ibn Yūsuf al-Thaqafī said one day, "I wish to strike down a man from among the companions of Abū Turāb, so that I may seek nearness to Allah through his blood."
-      > It was said to him, "We do not know anyone who had longer companionship with Abū Turāb than Qanbar, his servant." So he sent someone to fetch him, and he was brought before him.
-      > He said to him, "Are you Qanbar?" He said, "Yes."
-      > He said, "Abū Hamdān?" He said, "Yes."
-      > He said, "The servant of Ali ibn Abi Talib?" He replied, "Allah is my Master, and Ameerul Momineen, Imam Ali (peace be upon him), is the guardian of my blessing."
-      > He said, "Disassociate yourself from his religion!"
-      > He said, "And if I do disassociate from his religion, will you guide me to a religion better than it?"
-      > He said, "I am going to kill you. Choose whichever manner of killing is most beloved to you."
-      > He said, "I have left that up to you."
-      > He said, "And why is that?"
-      > He replied, "Because you will not kill me in any manner except that I will kill you in the same way. And Ameerul Momineen (peace be upon him) informed me that my end would be slaughter, unjustly and without right."
-      > So he ordered for him to be slaughtered.
-      > This is also among the reports that are authentically narrated from Ameerul Momineen (peace be upon him) concerning the unseen, falling under the category of overpowering miracles, manifest proofs, and knowledge that Allah has singled out for His proofs among His Prophets, Messengers, and Trustees (peace be upon them all). It is in line with what we have previously mentioned.
+      > The Master of the Prophets, the Messenger of Allah (peace be upon him and his holy progeny) said: "Do not look at the abundance of their prayers, their fasting, their Hajj, their well-known deeds, or their murmuring at night. Rather, look at the truthfulness of their speech and the fulfillment of the trust."
+      >
+      > **Context:** Establishing the true criteria for judging faith - truthfulness and trustworthiness rather than outward acts of worship.
 
-[^7]: **Al-Kāfī (Islamic Publishing), Volume 1, page 293, Tradition 3**
-      > **Arabic**
-      > الكافي (ط - الإسلامية) ؛ ج‏1 ؛ ص293
-      3- مُحَمَّدُ بْنُ الْحُسَيْنِ وَ غَيْرُهُ عَنْ سَهْلٍ عَنْ مُحَمَّدِ بْنِ عِيسَى وَ مُحَمَّدُ بْنُ يَحْيَى وَ مُحَمَّدُ بْنُ الْحُسَيْنِ جَمِيعاً عَنْ مُحَمَّدِ بْنِ سِنَانٍ عَنْ إِسْمَاعِيلَ بْنِ جَابِرٍ وَ عَبْدِ الْكَرِيمِ بْنِ عَمْرٍو عَنْ عَبْدِ الْحَمِيدِ بْنِ أَبِي الدَّيْلَمِ عَنْ أَبِي عَبْدِ اللَّهِ ع قَالَ: …
-      > الكافي (ط - الإسلامية)، ج‏1، ص: 294
-      > فَقَالَ ص مَنْ كُنْتُ مَوْلَاهُ فَعَلِيٌّ مَوْلَاهُ اللَّهُمَّ وَالِ مَنْ وَالاهُ وَ عَادِ مَنْ عَادَاهُ ثَلَاثَ مَرَّاتٍ …
+[^12]: **Al-Kāfī (Islamic Publishing), Volume 1, Page 24, Tradition 19**
+      > **Source:** الكافي (ط - الإسلامية) ؛ ج‏1 ؛ ص24
+      >
+      > **Arabic:**
+      > عَلِيُّ بْنُ إِبْرَاهِيمَ عَنْ أَبِيهِ... عَنْ أَبِي عَبْدِ اللَّهِ ع قَالَ: قُلْتُ لَهُ جُعِلْتُ فِدَاكَ إِنَّ لِي جَاراً كَثِيرَ الصَّلَاةِ كَثِيرَ الصَّدَقَةِ كَثِيرَ الْحَجِّ لَا بَأْسَ بِهِ‏  قَالَ فَقَالَ يَا إِسْحَاقُ كَيْفَ عَقْلُهُ قَالَ قُلْتُ لَهُ جُعِلْتُ فِدَاكَ لَيْسَ لَهُ عَقْلٌ قَالَ فَقَالَ لَا يَرْتَفِعُ بِذَلِكَ مِنْهُ
       >
       > **English:**
-      > Muhammad ibn al-Husayn and others, from Sahl, from Muhammad ibn ‘Isa and Muhammad ibn Yahya and Muhammad ibn al-Husayn—all from Muhammad ibn Sinan, from Isma‘il ibn Jabir and ‘Abd al-Karim ibn ‘Amr, from ‘Abd al-Hamid ibn Abi al-Daylam, from Abu Abdillah, Imam al-Sadiq (peace be upon him), who said: …
-      > Al-Kāfī (Islamic Publishing), Volume 1, page 294
-      > Then the Messenger of Allah (peace be upon him and his holy progeny) said: “Whomsoever I am his master, then Ali is his master. O Allah, befriend whoever befriends him, and be hostile to whoever is hostile to him.”—three times. …
+      > Ishaq ibn 'Ammar said to Abu Abdillah, Imam al-Sadiq (peace be upon him): "I have a neighbor who performs many prayers, gives charity, and frequently performs Hajj. He is not bad." He said: "O Ishaq, how is his intellect?" I said: "He has no intellect." He said: "Then none of that will be raised from him."
+      >
+      > **Context:** Emphasizing that intellect is the standard by which deeds are measured and accepted.
 
-[^8]: **Manāqib Āl Abī Ṭālib (Ibn Shahrāshūb), Volume 4, Page 184**
+[^13]: **Kanz al-Fawā'id – Volume 1, Page 57**
+      > **Source:** كنز الفوائد ؛ ج‏1 ؛ ص57
+      >
       > **Arabic:**
-      > مناقب آل أبي طالب عليهم السلام (لابن شهرآشوب) ؛ ج‏4 ؛ ص184
-      > قَدْ رَوَاهُ مُحَمَّدُ بْنُ أَبِي عُمَيْرٍ
-      > قَالَ أَبُو بَصِيرٍ لِلْبَاقِرِ ع مَا أَكْثَرَ الْحَجِيجَ وَ أَعْظَمَ الضَّجِيجِ فَقَالَ بَلْ مَا أَكْثَرَ الضَّجِيجَ وَ أَقَلَّ الْحَجِيجَ أَ تُحِبُّ أَنْ تَعْلَمَ صِدْقَ مَا أَقُولُهُ وَ تَرَاهُ عِيَاناً فَمَسَحَ عَلَى عَيْنَيْهِ وَ دَعَا بِدَعَوَاتٍ فَعَادَ بَصِيراً فَقَالَ انْظُرْ يَا أَبَا بَصِيرٍ إِلَى الْحَجِيجِ قَالَ فَنَظَرْتُ فَإِذَا أَكْثَرُ النَّاسِ قِرَدَةٌ وَ خَنَازِيرُ وَ الْمُؤْمِنُ بَيْنَهُمْ كَالْكَوْكَبِ اللَّامِعِ فِي الظَّلْمَاءِ فَقَالَ أَبُو بَصِيرٍ صَدَقْتَ يَا مَوْلَايَ مَا أَقَلَّ الْحَجِيجَ وَ أَكْثَرَ الضَّجِيجِ ثُمَّ دَعَا بِدَعَوَاتٍ فَعَادَ ضَرِيراً فَقَالَ أَبُو بَصِيرٍ فِي ذَلِكَ فَقَالَ ع مَا بَخِلْنَا عَلَيْكَ يَا أَبَا بَصِيرٍ وَ إِنْ كَانَ اللَّهُ تَعَالَى مَا ظَلَمَكَ وَ إِنَّمَا خَارَ لَكَ‏  وَ خَشِينَا فِتْنَةَ النَّاسِ بِنَا وَ أَنْ يَجْهَلُوا فَضْلَ اللَّهِ عَلَيْنَا وَ يَجْعَلُونَّا أَرْبَاباً مِنْ دُونِ اللَّهِ وَ نَحْنُ لَهُ عَبِيدٌ لَا نَسْتَكْبِرُ عَنْ عِبَادَتِهِ وَ لَا نَسْأَمُ مِنْ طَاعَتِهِ‏ وَ نَحْنُ لَهُ مُسْلِمُونَ‏
+      > مِنْ أَنَّ أَوَّلَ شَيْ‏ءٍ خَلَقَ اللَّهُ تَعَالَى الْعَقْلُ فَقَالَ لَهُ أَقْبِلْ فَأَقْبَلَ ثُمَّ قَالَ لَهُ أَدْبِرْ فَأَدْبَرَ فَقَالَ وَ عِزَّتِي وَ جَلَالِي مَا خَلَقْتُ خَلْقاً هُوَ أَحَبُّ إِلَيَّ مِنْكَ بِكَ أُعْطِي وَ بِكَ أَمْنَعُ وَ بِكَ أُثِيبُ وَ بِكَ‏ أُعَاقِبُ
       >
       > **English:**
-      > Manāqib Āl Abī Ṭālib (peace be upon them) by Ibn Shahrāshūb, Volume 4, page 184
-      > It was narrated by Muhammad ibn Abi ‘Umayr.
-      > Abu Basir said to Abu Ja‘far, Imam al-Baqir (peace be upon him): “How numerous > the pilgrims are, and how great is the clamor!”
-      > He said: “Rather, how great is the clamor, and how few the pilgrims. Do you wish to know the truth of what I say and witness it with your own eyes?”
-      > Then he wiped over his eyes and supplicated with certain supplications, and he returned to being sighted. He said: “Look, O Abu Basir, at the pilgrims.”
-      > So I looked, and behold, most of the people were monkeys and swine, and the believer among them was like a shining star in the darkness.
-      > Then Abu Basir said: “You have spoken the truth, O my master. How few the pilgrims, and how great the clamor!”
-      > Then he supplicated again with certain supplications, and I returned to being blind.
-      > Abu Basir then said about that, and he (peace be upon him) said: “We did not withhold from you, O Abu Basir, and Allah, the Exalted, did not wrong you; rather, He chose what is best for you. And we feared a trial from the people regarding us, and that they might be ignorant of Allah’s grace upon us and make us lords besides Allah—while we are His servants, not arrogant in worshipping Him, nor weary of obeying Him, and we are submissive to Him.”
+      > The first thing Allah, the Exalted, created was the intellect. He said to it: "Come forward," so it came forward. Then He said to it: "Go back," so it went back. Then He said: "By My might and My majesty, I have not created a creation more beloved to Me than you. Through you I give, and through you I withhold, and through you I reward, and through you I punish."
+      >
+      > **Context:** Establishing the supreme importance of intellect in divine judgment and human accountability.
 
-[^9]: **Al-Ghaybah (by al-Nu‘mānī), Page 33–34, Tradition No. 1**
+[^14]: **Surah At-Takathur (102), Verses 3-4**
       > **Arabic:**
-      > الغيبة( للنعماني) ؛ النص ؛ ص33
-      > 1- أَخْبَرَنَا أَبُو الْعَبَّاسِ أَحْمَدُ بْنُ مُحَمَّدِ بْنِ سَعِيدٍ ابْنُ عُقْدَةَ الْكُوفِيُ‏  قَالَ‏
-      > ______________________________
-      > (1). أبو العباس أحمد بن محمّد بن سعيد بن عبد الرحمن، يعرف بابن عقدة، قال النجاشيّ:
-      > هذا رجل جليل من أصحاب الحديث مشهور بالحفظ، و الحكايات تختلف عنه في الحفظ و عظمه و كان كوفيا زيديا جاروديا على ذلك حتّى مات، و ذكره أصحابنا لاختلاطه بهم و مداخلته اياهم و عظم محله و ثقته و أمانته.
-      > و قال الخطيب في ج 5 ص 14 من تاريخه المعروف بتاريخ بغداد: كان أحمد حافظا عالما مكثرا، جمع التراجم و الأبواب و المشيخة، و أكثر الرواية، و انتشر حديثه، و روى عنه الحفاظ و الأكابر الى أن قال «و عقدة: والد أبى العباس، و انما لقب بذلك لعلمه بالتصريف و النحو، و كان يورق بالكوفة و يعلم القرآن و الأدب- ثم نقل بواسطتين عن أبى على النقار أنّه قال-: سقطت من عقدة دنانير على باب دار أبى ذر الخزاز، فجاء بنخال ليطلبها، قال عقدة: فوجدتها ثمّ فكرت فقلت: ليس في الدنيا غير دنا نيرك؟ فقلت للنخال: هى في ذمتك و مضيت و تركته. و كان يؤدب لابن هشام الخزاز فلما حذق الصبى و تعلم، وجه اليه ابن هشام دنانير صالحة، فردّها فظنّ ابن هشام أن عقدة استقلّها فأضعفها له، فقال عقدة:
-      > ما رددتها استقلالا و لكن سألنى الصبىّ أن أعلّمه القرآن فاختلط تعليم النحو بتعليم القرآن فلا أستحلّ أن آخذ منه شيئا و لو دفع الى الدنيا. و كان عقدة زيديا و كان ورعا ناسكا، و انما سمّى عقدة لاجل تعقيده في التصريف، و كان وراقا جيد الخط، و كان ابنه أبو العباس أحفظ من كان في عصرنا للحديث- ثم ذكر شطرا ممّا يدلّ على كثرة حديثه و حفظه و مكتبته حتّى قال: «قال الصورى: و قال لي أبو سعيد المالينى: أراد أبو العباس أن ينتقل من الموضع الذي كان فيه الى موضع آخر، فاستأجر من يحمل كتبه و شارط الحمالين أن يدفع لكل واحد منهم دانقا لكل كرة، فوزن لهم اجورهم مائة درهم و كانت كتبه ستمائة حمل. و بالجملة ولد ابن عقدة سنة 249 و مات 332. راجع تاريخ الخطيب ج 5 ص 22 و 23.
-      > الغيبة( للنعماني)، النص، ص: 34
-      > حَدَّثَنَا الْقَاسِمُ بْنُ مُحَمَّدِ بْنِ الْحَسَنِ بْنِ حَازِمٍ قَالَ حَدَّثَنَا عُبَيْسُ بْنُ هِشَامٍ النَّاشِرِيُّ قَالَ حَدَّثَنَا عَبْدُ اللَّهِ بْنُ جَبَلَةَ عَنْ سَلَّامِ بْنِ أَبِي عَمْرَةَ عَنْ مَعْرُوفِ بْنِ خَرَّبُوذَ عَنْ أَبِي الطُّفَيْلِ عَامِرِ بْنِ وَاثِلَةَ  قَالَ قَالَ أَمِيرُ الْمُؤْمِنِينَ ع‏ أَ تُحِبُّونَ أَنْ يُكَذَّبَ اللَّهُ وَ رَسُولُهُ حَدِّثُوا النَّاسَ‏ بِمَا يَعْرِفُونَ‏ وَ أَمْسِكُوا عَمَّا يُنْكِرُونَ.
-      > 
+      > كَلَّا سَوْفَ تَعْلَمُونَ ﴿٣﴾ ثُمَّ كَلَّا سَوْفَ تَعْلَمُونَ ﴿٤﴾
+      >
       > **English:**
-      > Al-Ghaybah (by al-Nu‘mānī); Text; Page 33–34
-      > 1 – Abū al-‘Abbās Aḥmad ibn Muḥammad ibn Sa‘īd ibn ‘Uqda al-Kūfī narrated to us.
-      > He said:
-      > Al-Qāsim ibn Muḥammad ibn al-Ḥasan ibn Ḥāzim narrated to us, who said: ʿUbayys ibn Hishām al-Nāshirī narrated to us, who said: ʿAbdullāh ibn Jabalah narrated to us, from Sallām ibn Abī ʿAmrah, from Maʿrūf ibn Kharrabūdh, from Abū al-Ṭufayl ʿĀmir ibn Wāthilah, who said:
-      > Ameerul Momineen (peace be upon him) said:
-      > “Do you want Allah and His Messenger to be denied? Speak to the people about what they recognize, and withhold from what they reject.”
+      > No! You are going to know. Then no! You are going to know.
+      >
+      > **Context:** A warning about the consequences of being distracted by worldly competition.
 
-[^10]: **Hidayatul Kubra of al-Khosaibi, Page 204**
+[^15]: **Al-Ghaybah (by al-Nu'mānī), Page 33–34, Tradition No. 1**
+      > **Source:** الغيبة( للنعماني) ؛ النص ؛ ص33-34
+      >
       > **Arabic:**
-      > الهداية الكبرى - الحسين بن حمدان الخصيبي - الصفحة ٢٠٤
+      > أَخْبَرَنَا أَبُو الْعَبَّاسِ أَحْمَدُ بْنُ مُحَمَّدِ بْنِ سَعِيدٍ... قَالَ أَمِيرُ الْمُؤْمِنِينَ ع‏ أَ تُحِبُّونَ أَنْ يُكَذَّبَ اللَّهُ وَ رَسُولُهُ حَدِّثُوا النَّاسَ‏ بِمَا يَعْرِفُونَ‏ وَ أَمْسِكُوا عَمَّا يُنْكِرُونَ
+      >
+      > **English:**
+      > Ameerul Momineen (peace be upon him) said: "Do you want Allah and His Messenger to be denied? Speak to the people about what they recognize, and withhold from what they reject."
+      >
+      > **Context:** Guidance on effective preaching - starting with what people's intellect can accept rather than overwhelming them with advanced concepts.
+
+[^16]: **Hidayatul Kubra of al-Khosaibi, Page 204**
+      > **Source:** الهداية الكبرى - الحسين بن حمدان الخصيبي - الصفحة ٢٠٤
+      >
+      > **Arabic:**
       > وعنه عن الحسين بن محمد بن جمهور عن محمد بن علي عن علي بن الحسن عن علي بن محمد عن عاصم الخياط عن أبي حمزة الثمالي قال:
-      > سمعت عليا بن الحسين (عليهما السلام) يقول لما كان اليوم الذي استشهد فيه أبو عبد الله (عليه السلام) جمع أهله وأصحابه في ليلة ذلك اليوم فقال لهم: يا أهلي وشيعتي اتخذوا هذا الليل جملا لكم وانجوا بأنفسكم فليس المطلوب غيري ولو قتلوني ما فكروا فيكم فانجوا بأنفسكم رحمكم الله فأنتم في حل وسعة من بيعتي وعهد الله الذي عاهدتموني فقالوا اخوته وأهله وأنصاره بلسان واحد والله يا سيدنا أبا عبد الله لا تركناك أبدا أيش يقول الناس تركوا امامهم وسيدهم وكبيرهم وحده حتى قتل ونبلوا بيننا وبين الله عذرا وحاش لله أن يكون ذلك أبدا أو نقتل دونك فقال (عليه السلام) يا قوم فإني غدا أقتل وتقتلون كلكم حتى لا يبقى منكم أحد فقالوا الحمد لله الذي أكرمنا بنصرتك وشرفنا بالقتل معك أولا ترضى ان نكون معك في درجتك يا ابن بنت رسول الله فقال لهم خيرا ودعا لهم بخير فأصبح وقتل وقتلوا معه أجمعين فقال له القاسم ابن أخي الحسن يا عم وأنا اقتل فاشفق عليه ثم قال: يا ابن أخي كيف الموت عندك قال: يا عم أحلى من العسل قال أي والله فذلك أحلى لا أحد يقتل من الرجال معي ان تبلو بلاء عظيما وابني عبد الله إذا خفت عطشا قال يا عم ويصلون إلى النساء حتى يقتل عبد الله وهو رضيع فقال فداك عمك يقتل عبد الله إذا خفت عطشا روحي وصرت إلى خيامنا فطلبت ما أوليناه فلا أجد فأقول ناولني عبد الله اشرب من فيه أندى لهواني فيعطوني إياه فأحمله على يدي فأدنى فاه من في فيرميه فاسق منهم لعنه الله بسهم فيخره وهو يناغي فيفيض دمه في كفي فارفعه إلى السماء وأقول اللهم صبرا واحتسابا فيك فتلحقني الأسنة منهم والنار تحرق وتسعر في الخندق الذي في ظهر الخيم فأكر عليهم في آخر أوقات بقائي في دار الدنيا فيكون ما يريد الله فبكى وبكينا وارتفع البكاء والصراخ من ذراري رسول الله (صلى الله عليه وآله) في الخيم ويسألني زهير بن القين وحبيب بن مظاهر عن علي فيقولان يا سيدنا علي إلى ما يكون من حاله فأقول مستعبرا لم يكن الله ليقطع نسلي من الدنيا وكيف يصلون إليه وهو أبو ثمانية أئمة وكان كلما قاله صار فكان هذا من دلائله (عليه السلام).
+      > سمعت عليا بن الحسين (عليهما السلام) يقول لما كان اليوم الذي استشهد فيه أبو عبد الله (عليه السلام) جمع أهله وأصحابه في ليلة ذلك اليوم فقال لهم: يا أهلي وشيعتي اتخذوا هذا الليل جملا لكم وانجوا بأنفسكم فليس المطلوب غيري ولو قتلوني ما فكروا فيكم فانجوا بأنفسكم رحمكم الله فأنتم في حل وسعة من بيعتي وعهد الله الذي عاهدتموني فقالوا اخوته وأهله وأنصاره بلسان واحد والله يا سيدنا أبا عبد الله لا تركناك أبدا أيش يقول الناس تركوا امامهم وسيدهم وكبيرهم وحده حتى قتل ونبلوا بيننا وبين الله عذرا وحاش لله أن يكون ذلك أبدا أو نقتل دونك فقال (عليه السلام) يا قوم فإني غدا أقتل وتقتلون كلكم حتى لا يبقى منكم أحد فقالوا الحمد لله الذي أكرمنا بنصرتك وشرفنا بالقتل معك أولا ترضى ان نكون معك في درجتك يا ابن بنت رسول الله فقال لهم خيرا ودعا لهم بخير فأصبح وقتل وقتلوا معه أجمعين فقال له القاسم ابن أخي الحسن يا عم وأنا اقتل فاشفق عليه ثم قال: يا ابن أخي كيف الموت عندك قال: يا عم أحلى من العسل قال أي والله فذلك أحلى لا أحد يقتل من الرجال معي ان تبلو بلاء عظيما وابنی عبد الله إذا خفت عطشا قال يا عم ويصلون إلى النساء حتى يقتل عبد الله وهو رضيع فقال فداك عمك يقتل عبد الله إذا خفت عطشا روحي وصرت إلى خيامنا فطلبت ما أولیناه فلا أجد فأقول ناولني عبد الله اشرب من فيه أندى لهواني فيعطوني إياه فأحمله على يدي فأدنى فاه من في فيرميه فاسق منهم لعنه الله بسهم فيخره وهو يناغي فيفيض دمه في كفي فارفعه إلى السماء وأقول اللهم صبرا واحتسابا فيك فتلحقني الأسنة منهم والنار تحرق وتسعر في الخندق الذي في ظهر الخيم فأكر عليهم في آخر أوقات بقائي في دار الدنيا فيكون ما يريد الله فبكى وبكينا وارتفع البكاء والصراخ من ذراري رسول الله (صلى الله عليه وآله) في الخيم ويسألني زهير بن القين وحبيب بن مظاهر عن علي فيقولان يا سيدنا علي إلى ما يكون من حاله فأقول مستعبرا لم يكن الله ليقطع نسلي من الدنيا وكيف يصلون إليه وهو أبو ثمانية أئمة وكان كلما قاله صار فكان هذا من دلائله (عليه السلام).
+      >
+      > **English:**
+      > Hidayatul Kubra of al-Khosaibi page 204
+      > From him, from al-Husain ibn Muhammad ibn Jumhoor, from Muhammad ibn Ali, from Ali ibn al-Hasan, from Ali ibn Muhammad, from Asim al-Khayyat, from Abu Hamzah al-Thumali, who said:
+      > I heard Ali ibn al-Husain (peace be upon them both) say: When it was the day on which Abu Abdillah, Imam al-Husain (peace be upon him), was martyred, he gathered his family and companions on the night of that day and said to them: "O my family and my Shia, take this night as a camel and escape with yourselves, for I am the only one sought, and if they kill me, they will not think of you. So save yourselves, may Allah have mercy on you. You are in release and freedom from my allegiance and from the covenant of Allah that you made with me."
+      > His brothers, family, and supporters all said with one voice: "By Allah, O our master Abu Abdillah, we will never leave you. What would people say—that they abandoned their Imam, their master, and their elder until he was killed? May we never offer such an excuse before Allah, and far be it from Allah that this should ever happen, or that we be killed except with you."
+      > Then he (peace be upon him) said: "O my people, indeed tomorrow I will be killed, and you all will be killed, such that none of you will remain."
+      > They said: "Praise be to Allah who honored us with your support and granted us the dignity of being killed with you. Are you not pleased that we be with you in your rank, O son of the daughter of the Messenger of Allah?"
+      > So he said good things to them and prayed for them with goodness. Then the morning came, and he was killed, and they were all killed with him.
+      > Then al-Qasim, the son of my brother al-Hasan, said to him: "O uncle, will I be killed too?" He felt compassion for him, then said: "O son of my brother, how do you find death?" He said: "O uncle, it is sweeter than honey." He said: "Yes, by Allah, it is even sweeter. None of the men who are with me will be killed without undergoing a great trial. And my son Abdullah, when he fears thirst—"
+      > He said: "O uncle, will they even reach the women, until Abdullah is killed while still an infant?"
+      > He replied: "May your uncle be sacrificed for you, Abdullah will be killed when he fears thirst. My soul will go, and I will return to our tents. I will search for what we had given him, and I will not find it. So I will say: 'Hand me Abdullah to drink from his mouth, for that would soothe my suffering.' Then they will give him to me, and I will carry him in my hands. I will bring his mouth close to mine, and then one of those people—may Allah curse him—will shoot him with an arrow, and it will kill him while he is still babbling. His blood will pour into my palms, and I will raise them to the sky and say: 'O Allah, in patience and seeking reward from You.'"
+      > "Then the spears of those people will reach me, and the fire will burn and rage in the trench behind the tents. So I will charge at them in the last moments of my stay in this worldly abode, and what Allah wills shall be."
+      > He cried, and we cried, and the crying and wailing of the descendants of the Messenger of Allah (peace be upon him and his holy progeny) rose in the tents. Zuhayr ibn al-Qayn and Habib ibn Muzahir asked me about Ali, saying: "O our master Ali, what will be his fate?"
+      > So I said, tearfully: "Allah would never cut off my progeny from this world. How could they reach him, when he is the father of eight Imams?" And everything he said would come to pass, and this was among his signs (peace be upon him).
+      > سمعت عليا بن الحسين (عليهما السلام) يقول لما كان اليوم الذي استشهد فيه أبو عبد الله (عليه السلام) جمع أهله وأصحابه في ليلة ذلك اليوم فقال لهم: يا أهلي وشيعتي اتخذوا هذا الليل جملا لكم وانجوا بأنفسكم فليس المطلوب غيري ولو قتلوني ما فكروا فيكم فانجوا بأنفسكم رحمكم الله فأنتم في حل وسعة من بيعتي وعهد الله الذي عاهدتموني فقالوا اخوته وأهله وأنصاره بلسان واحد والله يا سيدنا أبا عبد الله لا تركناك أبدا أيش يقول الناس تركوا امامهم وسيدهم وكبيرهم وحده حتى قتل ونبلوا بيننا وبين الله عذرا وحاش لله أن يكون ذلك أبدا أو نقتل دونك فقال (عليه السلام) يا قوم فإني غدا أقتل وتقتلون كلكم حتى لا يبقى منكم أحد فقالوا الحمد لله الذي أكرمنا بنصرتك وشرفنا بالقتل معك أولا ترضى ان نكون معك في درجتك يا ابن بنت رسول الله فقال لهم خيرا ودعا لهم بخير فأصبح وقتل وقتلوا معه أجمعين فقال له القاسم ابن أخي الحسن يا عم وأنا اقتل فاشفق عليه ثم قال: يا ابن أخي كيف الموت عندك قال: يا عم أحلى من العسل قال أي والله فذلك أحلى لا أحد يقتل من الرجال معي ان تبلو بلاء عظيما وابنی عبد الله إذا خفت عطشا قال يا عم ويصلون إلى النساء حتى يقتل عبد الله وهو رضيع فقال فداك عمك يقتل عبد الله إذا خفت عطشا روحي وصرت إلى خيامنا فطلبت ما أولیناه فلا أجد فأقول ناولني عبد الله اشرب من فيه أندى لهواني فيعطوني إياه فأحمله على يدي فأدنى فاه من في فيرميه فاسق منهم لعنه الله بسهم فيخره وهو يناغي فيفيض دمه في كفي فارفعه إلى السماء وأقول اللهم صبرا واحتسابا فيك فتلحقني الأسنة منهم والنار تحرق وتسعر في الخندق الذي في ظهر الخيم فأكر عليهم في آخر أوقات بقائي في دار الدنيا فيكون ما يريد الله فبكى وبكينا وارتفع البكاء والصراخ من ذراري رسول الله (صلى الله عليه وآله) في الخيم ويسألني زهير بن القين وحبيب بن مظاهر عن علي فيقولان يا سيدنا علي إلى ما يكون من حاله فأقول مستعبرا لم يكن الله ليقطع نسلي من الدنيا وكيف يصلون إليه وهو أبو ثمانية أئمة وكان كلما قاله صار فكان هذا من دلائله (عليه السلام).
       >
       > **English:**
       > Hidayatul Kubra of al-Khosaibi page 204
