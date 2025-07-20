@@ -156,8 +156,3 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 ### Saquib Ravji
 **Speaker: Dr. Shabeeb Rizvi**  
 **July 03** - [Majlis No. 7](2025/2025-07-03_YariRoad_Majlis07_SaquibRavji_DrShabeebRizvi) *(7th Moharram 1446 AH)*
-
-### Tauqeer Devji
-**Speaker: Dr. Shabeeb Rizvi**  
-**July 20** - [Majlis No. 8](2025/2025-07-20_YariRoad_Majlis08_TauqeerDevji_DrShabeebRizvi) *(25th Moharram 1446 AH)*
-
