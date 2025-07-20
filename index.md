@@ -1,6 +1,6 @@
 # Majalis Collection
 
-<details>
+<details markdown="1">
 <summary><strong>Khutba (Sermon)</strong> - Click to expand</summary>
 
 **رحم الله من قرأ الفاتحة.**  
