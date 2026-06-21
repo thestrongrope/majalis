@@ -4,7 +4,7 @@
 
 **Speaker:** Dr. Shabeeb Rizvi  
 **Venue:** Yari Road (Tanveer Devji)  
-**Date:** June 16, 2026 | 30th Zilhajj 1447 AH  
+**Date:** June 17, 2026 | 1st Moharram 1447 AH  
 **Series:** Lecture 1 - Moharram 2026  
 
 ---
