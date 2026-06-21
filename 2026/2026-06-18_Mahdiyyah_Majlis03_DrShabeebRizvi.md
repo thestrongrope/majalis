@@ -4,7 +4,7 @@
 
 **Speaker:** Dr. Shabeeb Rizvi  
 **Venue:** Mahdiyyah, Bandra West  
-**Date:** June 18, 2026 | 2nd Moharram 1448 AH  
+**Date:** June 18, 2026 | 2nd Moharram 1447 AH  
 **Series:** Lecture 3 - Moharram 2026  
 
 ---
