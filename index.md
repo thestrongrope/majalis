@@ -88,7 +88,7 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 
 - [Moharram 1447 AH (2026)](#moharram-1448-ah-majalis)
   - [Mahdiyyah Cultural Center](#mahdiyyah-cultural-center---main-series-1) (8 sessions so far)
-  - [Yari Road Majalis](#yari-road-majalis) (6 sessions so far)
+  - [Yari Road Majalis](#yari-road-majalis) (6 sessions)
 - [Moharram 1446 AH (2025)](#moharram-1446-ah-majalis)
   - [Bandra Area Majalis](#bandra-area-majalis) (16 sessions)
   - [Yari Road Majalis](#yari-road-majalis) (8 sessions)
