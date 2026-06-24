@@ -87,7 +87,7 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 ## Table of Contents
 
 - [Moharram 1447 AH (2026)](#moharram-1448-ah-majalis)
-  - [Mahdiyyah Cultural Center](#mahdiyyah-cultural-center---main-series-1) (6 sessions so far)
+  - [Mahdiyyah Cultural Center](#mahdiyyah-cultural-center---main-series-1) (8 sessions so far)
   - [Yari Road Majalis](#yari-road-majalis) (6 sessions so far)
 - [Moharram 1446 AH (2025)](#moharram-1446-ah-majalis)
   - [Bandra Area Majalis](#bandra-area-majalis) (16 sessions)
@@ -104,7 +104,7 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 ## Mahdiyyah Cultural Center - *Main Series*
 *The primary venue for Moharram majalis in Bandra West*  
 **Speaker: Dr. Shabeeb Rizvi**  
-**June 16–21, 2026 | 30th Zilhajj – 5th Moharram 1447 AH** *(ongoing)*
+**June 16–23, 2026 | 30th Zilhajj – 7th Moharram 1447 AH** *(ongoing)*
 
 1. **June 16** - [Majlis No. 1](2026/2026-06-16_Mahdiyyah_Majlis01_DrShabeebRizvi) *(30th Zilhajj 1447 AH)*
 2. **June 17** - [Majlis No. 2](2026/2026-06-17_Mahdiyyah_Majlis02_DrShabeebRizvi) *(1st Moharram 1447 AH)*
@@ -112,6 +112,8 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 4. **June 19** - [Majlis No. 4](2026/2026-06-19_Mahdiyyah_Majlis04_DrShabeebRizvi) *(3rd Moharram 1447 AH)*
 5. **June 20** - [Majlis No. 5](2026/2026-06-20_Mahdiyyah_Majlis05_DrShabeebRizvi) *(4th Moharram 1447 AH)*
 6. **June 21** - [Majlis No. 6](2026/2026-06-21_Mahdiyyah_Majlis06_DrShabeebRizvi) *(5th Moharram 1447 AH)*
+7. **June 22** - [Majlis No. 7](2026/2026-06-22_Mahdiyyah_Majlis07_DrShabeebRizvi) *(6th Moharram 1447 AH)*
+8. **June 23** - [Majlis No. 8](2026/2026-06-23_Mahdiyyah_Majlis08_DrShabeebRizvi) *(7th Moharram 1447 AH)*
 
 ## Yari Road Majalis
 
