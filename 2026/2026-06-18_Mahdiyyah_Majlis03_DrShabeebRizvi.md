@@ -6,6 +6,7 @@
 **Venue:** Mahdiyyah, Bandra West  
 **Date:** June 18, 2026 | 2nd Moharram 1447 AH  
 **Series:** Lecture 3 - Moharram 2026  
+**YouTube:** [Majlis 3 | Foresight (Door Andeshi)](https://www.youtube.com/watch?v=imKgnVQKn_o)  
 
 ---
 

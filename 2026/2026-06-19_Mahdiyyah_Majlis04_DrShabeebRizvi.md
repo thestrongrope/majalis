@@ -6,6 +6,7 @@
 **Venue:** Mahdiyyah, Bandra West  
 **Date:** June 19, 2026 | 3rd Moharram 1447 AH  
 **Series:** Lecture 4 - Moharram 2026  
+**YouTube:** [Majlis 4 | Haq aur Baatil](https://www.youtube.com/watch?v=vof0nDtsJOQ)  
 
 ---
 

@@ -6,6 +6,7 @@
 **Venue:** Mahdiyyah, Bandra West  
 **Date:** June 16, 2026 | 30th Zilhajj 1447 AH  
 **Series:** Lecture 1 - Moharram 2026  
+**YouTube:** [Majlis 1 | Khair Kya Hai?](https://www.youtube.com/watch?v=gPEi78C3Lwg)  
 
 ---
 

@@ -88,7 +88,7 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 
 - [Moharram 1447 AH (2026)](#moharram-1448-ah-majalis)
   - [Mahdiyyah Cultural Center](#mahdiyyah-cultural-center---main-series-1) (6 sessions so far)
-  - [Yari Road — Tanveer Devji](#tanveer-devji) (5 sessions)
+  - [Yari Road Majalis](#yari-road-majalis) (6 sessions so far)
 - [Moharram 1446 AH (2025)](#moharram-1446-ah-majalis)
   - [Bandra Area Majalis](#bandra-area-majalis) (16 sessions)
   - [Yari Road Majalis](#yari-road-majalis) (8 sessions)
@@ -124,6 +124,12 @@ Abul Qasim Muhammad (peace be upon him and his holy family).
 3. **June 19** - [Majlis No. 3](2026/2026-06-19_YariRoad_Majlis03_TanveerDevji_DrShabeebRizvi) *(3rd Moharram 1447 AH)*
 4. **June 20** - [Majlis No. 4](2026/2026-06-20_YariRoad_Majlis04_TanveerDevji_DrShabeebRizvi) *(4th Moharram 1447 AH)*
 5. **June 21** - [Majlis No. 5](2026/2026-06-21_YariRoad_Majlis05_TanveerDevji_DrShabeebRizvi) *(5th Moharram 1447 AH)*
+
+### Abbas Naheed
+**Speaker: Dr. Shabeeb Rizvi**  
+**June 22, 2026 | 6th Moharram 1447 AH**
+
+6. **June 22** - [Majlis No. 6](2026/2026-06-22_YariRoad_Majlis06_AbbasNaheed_DrShabeebRizvi) *(6th Moharram 1447 AH)*
 
 ---
 

@@ -6,6 +6,7 @@
 **Venue:** Mahdiyyah, Bandra West  
 **Date:** June 17, 2026 | 1st Moharram 1447 AH  
 **Series:** Lecture 2 - Moharram 2026  
+**YouTube:** [Majlis 2 | Aql aur Aaqil](https://www.youtube.com/watch?v=rsMjK2iG4jE)  
 
 ---
 

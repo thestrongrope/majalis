@@ -6,6 +6,7 @@
 **Venue:** Mahdiyyah, Bandra West  
 **Date:** June 20, 2026 | 4th Moharram 1447 AH  
 **Series:** Lecture 5 - Moharram 2026  
+**YouTube:** [Majlis 5 | Mukhtasar Tareekh-e-Azadaari](https://www.youtube.com/watch?v=j-PQ5bvlvTw)  
 
 ---
 
