@@ -2,35 +2,35 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi  
-**Venue:** Mahdiyyah, Bandra West  
-**Date:** June 24, 2026 | 8th Moharram 1447 AH  
-**Series:** Lecture 9 - Moharram 2026  
-**YouTube:** [Majlis 9 | Ma'refat-e-Imam (a.s.)](https://www.youtube.com/watch?v=4dRelRQ4DpM)  
+**Speaker:** Dr. Shabeeb Rizvi
+**Venue:** Mahdiyyah, Bandra West
+**Date:** June 24, 2026 | 8th Moharram 1447 AH
+**Series:** Lecture 9 - Moharram 2026
+**YouTube:** [Majlis 9 | Ma'refat-e-Imam (a.s.)](https://www.youtube.com/watch?v=4dRelRQ4DpM)
 
 ---
 
 ## Table of Contents
 
 - [The Call to Hasten Towards Good Deeds](#the-call-to-hasten-towards-good-deeds)
-  - [Piety and the Wilayah of Ali (عليه السلام)](#piety-and-the-wilayah-of-ali-عليه-السلام)
-  - [Seeking Forgiveness and the Best Intermediary](#seeking-forgiveness-and-the-best-intermediary)
-  - [Knowledge and Action](#knowledge-and-action)
-  - [Objections to Azadari](#objections-to-azadari)
-  - [The Deception at Siffin and the Need for Ma'rifah](#the-deception-at-siffin-and-the-need-for-marifah)
+ - [Piety and the Wilayah of Ali (عليه السلام)](#piety-and-the-wilayah-of-ali-عليه-السلام)
+ - [Seeking Forgiveness and the Best Intermediary](#seeking-forgiveness-and-the-best-intermediary)
+ - [Knowledge and Action](#knowledge-and-action)
+ - [Objections to Azadari](#objections-to-azadari)
+ - [The Deception at Siffin and the Need for Ma'rifah](#the-deception-at-siffin-and-the-need-for-marifah)
 - [The Guidance of the Ahl al-Bayt](#the-guidance-of-the-ahl-al-bayt)
-  - [The Path of Wilayah in the Quran](#the-path-of-wilayah-in-the-quran)
-  - [The True Ulul Amr](#the-true-ulul-amr)
+ - [The Path of Wilayah in the Quran](#the-path-of-wilayah-in-the-quran)
+ - [The True Ulul Amr](#the-true-ulul-amr)
 - [A Hadith Qudsi on Divine Justice](#a-hadith-qudsi-on-divine-justice)
 - [The Unmatched Eloquence and Knowledge of the Imam](#the-unmatched-eloquence-and-knowledge-of-the-imam)
 - [Glad Tidings for the Followers of a Just Imam](#glad-tidings-for-the-followers-of-a-just-imam)
 - [Who Are the Muhsineen?](#who-are-the-muhsineen)
-  - [Al-Khisal of Sheikh Saduq](#al-khisal-of-sheikh-saduq)
+ - [Al-Khisal of Sheikh Saduq](#al-khisal-of-sheikh-saduq)
 - [The Story of Hafs ibn Ghiyath al-Nakhai](#the-story-of-hafs-ibn-ghiyath-al-nakhai)
-  - [The True Meaning of Goodness](#the-true-meaning-of-goodness)
-  - [Daily Growth in Wilayah](#daily-growth-in-wilayah)
-  - [Rectifying Sins Through Repentance](#rectifying-sins-through-repentance)
-  - [The Inseparability of Wilayah and Bara'ah](#the-inseparability-of-wilayah-and-baraah)
+ - [The True Meaning of Goodness](#the-true-meaning-of-goodness)
+ - [Daily Growth in Wilayah](#daily-growth-in-wilayah)
+ - [Rectifying Sins Through Repentance](#rectifying-sins-through-repentance)
+ - [The Inseparability of Wilayah and Bara'ah](#the-inseparability-of-wilayah-and-baraah)
 - [The Importance of Bara'at](#the-importance-of-baraat)
 - [Preserving the Truth of History](#preserving-the-truth-of-history)
 - [The Tragedy of Karbala](#the-tragedy-of-karbala)
@@ -40,7 +40,7 @@
 
 The speaker discusses the Quranic call to race toward good deeds and rush to Allah's forgiveness and Paradise, which is prepared for the pious. According to Islamic traditions, the primary manifestation of piety (taqwa) is the Wilayah of Ali ibn Abi Talib (عليه السلام), without which true piety cannot exist. The pious are characterized by spending in all circumstances, controlling their anger, forgiving others, and seeking sincere repentance when they err. Sincere repentance requires not repeating the sin, as doing so is akin to mocking oneself. Furthermore, seeking forgiveness is most effective when utilizing the Prophet (صلى الله عليه وآله وسلم) and his Ahl al-Bayt as a means (wasilah) to Allah, as highlighted in Surah an-Nisa. The speaker emphasizes that knowledge must be paired with action, citing the narration of Imam Ali (عليه السلام) that the perfection of religion lies in seeking knowledge and acting upon it.
 
-The lecture highlights that Allah instills the love of Imam Hussain (عليه السلام) and his visitation in the hearts of those for whom He desires good. [political commentary omitted] Conversely, those who object to the mourning rituals (Azadari) of Imam Hussain (عليه السلام) exhibit a lack of this love. The speaker stresses the vital importance of having deep spiritual recognition (ma'rifah) of the Imam of the time. Without it, people fall into misguidance, much like the Kharijites during the Battle of Siffin who forced Imam Ali (عليه السلام) to halt the battle because they lacked true recognition of him as the speaking Quran. The Ahl al-Bayt are the ultimate source of guidance, as they save humanity from misguidance, blindness, and ignorance. This is reflected in the exegesis of Surah al-Jinn, verse 16:
+The lecture highlights that Allah instills the love of Imam Hussain (عليه السلام) and his visitation in the hearts of those for whom He desires good. ... Conversely, those who object to the mourning rituals (Azadari) of Imam Hussain (عليه السلام) exhibit a lack of this love. The speaker stresses the vital importance of having deep spiritual recognition (ma'rifah) of the Imam of the time. Without it, people fall into misguidance, much like the Kharijites during the Battle of Siffin who forced Imam Ali (عليه السلام) to halt the battle because they lacked true recognition of him as the speaking Quran. The Ahl al-Bayt are the ultimate source of guidance, as they save humanity from misguidance, blindness, and ignorance. This is reflected in the exegesis of Surah al-Jinn, verse 16:
 
 وَأَنْ لَوِ اسْتَقَامُوا عَلَى الطَّرِيقَةِ لَأَسْقَيْنَاهُمْ مَاءً غَدَقًا
 > **Reference:** Quran, Surah al-Jinn 72:16
@@ -238,18 +238,18 @@ See, merely possessing knowledge is not enough; rather, action must accompany it
 
 > **Reference:** [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/303711) (Ibn Shuba al-Harrani (a.r.), 4th c. AH), vol. 1, pp. 199–200, H. 228 — Imam Ali (عليه السلام)
 
-"that the perfection of religion is the seeking of knowledge and acting upon it." Know that religion becomes complete when you acquire knowledge and act upon it. Religion becomes perfect at that point. That is, if there is only knowledge, it is of no use. If there is only action, that too is of no use. Both things, individually, if they are alone, are of no benefit. If both come together, there is benefit. This is the statement of the Master of the Universe; look, ponder upon the statement of the Master of the Universe. 
+"that the perfection of religion is the seeking of knowledge and acting upon it." Know that religion becomes complete when you acquire knowledge and act upon it. Religion becomes perfect at that point. That is, if there is only knowledge, it is of no use. If there is only action, that too is of no use. Both things, individually, if they are alone, are of no benefit. If both come together, there is benefit. This is the statement of the Master of the Universe; look, ponder upon the statement of the Master of the Universe.
 
 Therefore, it is very necessary for a person to run quickly towards this, meaning towards the mercy and forgiveness of Allah, and this quickness does not mean physical speed. It means what we have been discussing in so many gatherings, which is that, for example, a person should always look for opportunities to receive the mercy of Allah. At all times, he should be searching for when—meaning whatever opportunity he gets to serve the religion, to serve Allah, to serve the Imam of the Time, however, whenever he gets time, whatever opportunity he gets, he should not let that opportunity slip away. This is the important thing. So when this is the case, I submitted to you what the narration is:
 من اراد اللہ بہ الخیر قذف فی قلبہ حب الحسین و حب زیارتہ
 
 > **Reference:** [Kamil al-Ziyaraat](https://hadith.ahlebaytrepo.com/01526/h/352629) (Ibn Qulawayh (a.r.), d. 367 AH), vol. 1, p. 142, H. 370 — Imam al-Sadiq (عليه السلام)
 
-For whomever Allah desires good, He casts into his heart the love of Al-Husayn and the love of his visitation. [political commentary omitted] And for whomever Allah desires evil—"and for whomever Allah desires evil"—desiring evil means Allah leaves him to his own state. He does not care; if he perishes in the valley of the nation, Allah does not care, abandonment strikes him, so Allah casts into his heart malice towards Al-Husayn, and he begins to hate Al-Husayn. And he begins to hate the visitation of Al-Husayn.
+For whomever Allah desires good, He casts into his heart the love of Al-Husayn and the love of his visitation. ... And for whomever Allah desires evil—"and for whomever Allah desires evil"—desiring evil means Allah leaves him to his own state. He does not care; if he perishes in the valley of the nation, Allah does not care, abandonment strikes him, so Allah casts into his heart malice towards Al-Husayn, and he begins to hate Al-Husayn. And he begins to hate the visitation of Al-Husayn.
 
 ### Objections to Azadari
 
-And what is one sign of this hatred? Do you know? One sign, if you want to know—well, this is an indicator of mine, the other indicators you understand yourselves. That is when a person begins to object to Azadari. Wow! Wow! Wow! Then you should understand that something is definitely wrong somewhere. "Why is this portion so much? Why this portion? Instead of this, if we build hospitals, build schools." [political commentary omitted] Build them, look, build them. Hospitals should also be built, schools should also be built, but build them from your own budget, not from the budget of Imam Al-Husayn (عليه السلام). Spend from your own money. Why is your eye on the budget of Imam Al-Husayn (عليه السلام), brother? And whatever government there is in the world, every government has its own separate allotment of budget. Similarly, this is a separate thing. Why are you mixing the two? Their main purpose is to target the Azadari of Imam Al-Husayn (عليه السلام). That is all, they have no other goal or purpose. This is only because somewhere or other, something is wrong. As for the rest, you understand better than us. Recite a Salawat upon Muhammad and the Family of Muhammad.
+And what is one sign of this hatred? Do you know? One sign, if you want to know—well, this is an indicator of mine, the other indicators you understand yourselves. That is when a person begins to object to Azadari. Wow! Wow! Wow! Then you should understand that something is definitely wrong somewhere. "Why is this portion so much? Why this portion? Instead of this, if we build hospitals, build schools." ... Build them, look, build them. Hospitals should also be built, schools should also be built, but build them from your own budget, not from the budget of Imam Al-Husayn (عليه السلام). Spend from your own money. Why is your eye on the budget of Imam Al-Husayn (عليه السلام), brother? And whatever government there is in the world, every government has its own separate allotment of budget. Similarly, this is a separate thing. Why are you mixing the two? Their main purpose is to target the Azadari of Imam Al-Husayn (عليه السلام). That is all, they have no other goal or purpose. This is only because somewhere or other, something is wrong. As for the rest, you understand better than us. Recite a Salawat upon Muhammad and the Family of Muhammad.
 
 اللهم صل على محمد وآل محمد وعجل فرجهم
 
@@ -257,7 +257,7 @@ Ya Ali! Ya Ali! Ya Ali! Hu Ali! Ya Ali Mawla! O Ali! Ya Ali! And what did you do
 
 ### The Deception at Siffin and the Need for Ma'rifah
 
-So he said, "Look, now there is only one chance of survival, and that is to raise the Quran on spears." The Quran was raised on spears. Now all these Kharijites surrounded the Commander of the Faithful. "Why are you fighting them? They read the Quran, they believe in the Quran. Look, like us, they also read the Quran, they believe in the Quran." Ali ibn Abi Talib explained, "This is not the Quran, this is only a book. The Quran is here. Look at me, I am the Quran, this is not the Quran." He explained to them, but because they lacked deep recognition (*ma'rifah*), they could not understand it. Therefore they said, "O Ali! Call Malik back, otherwise we will kill you right now." 
+So he said, "Look, now there is only one chance of survival, and that is to raise the Quran on spears." The Quran was raised on spears. Now all these Kharijites surrounded the Commander of the Faithful. "Why are you fighting them? They read the Quran, they believe in the Quran. Look, like us, they also read the Quran, they believe in the Quran." Ali ibn Abi Talib explained, "This is not the Quran, this is only a book. The Quran is here. Look at me, I am the Quran, this is not the Quran." He explained to them, but because they lacked deep recognition (*ma'rifah*), they could not understand it. Therefore they said, "O Ali! Call Malik back, otherwise we will kill you right now."
 
 These people used to worship so much that it is explicitly written in the books of history that the mark of prostration on their foreheads was like the knee of a camel. You have seen the knee of a camel, how it becomes from sitting repeatedly—so they had such a mark, their throats were worn out from recitation, but they could not recognize. They did not have the *ma'rifah* of the Imam. The Master, the Master of the Universe says, "These people broke my back." And this thing holds true even today. Therefore, the *ma'rifah* of the Imam is very essential. And even today, this thing is necessary. If there is no correct *ma'rifah*, then people will start calling anyone their Imam. "This one is also an Imam, that one is also an Imam." This is clear to you. So yesterday, I submitted some things to you, and now today, two sentences...
 
@@ -383,7 +383,7 @@ Every such community. Allah used the word "Ra'iyyah"—"Ra'iyyah" refers to a fl
 
 فِي الْإِسْلَامِ
 
-[political commentary omitted]
+...
 
 Between Muslims, between Muslims. Now, whoever falls under this, yes, as they say in English, "Whoever fits the hat." "Whoever fits the hat." What is this called in the principles of jurisprudence (Usul al-Fiqh)? The rule of *Tahqiq al-Manat* (verification of the application)—this is the terminology of Usul al-Fiqh. That is, whoever this holds true for, whoever this applies to, it is for them. There is no doubt about it; it is the word of Allah, and there is no compromise in it. Allah does not make any compromise.
 
@@ -425,7 +425,7 @@ even if that nation, those subjects, are very good in their actions and apparent
 
 ## The Unmatched Eloquence and Knowledge of the Imam
 
-Pick up and read Nahj al-Balagha. We are not saying the entire Nahj al-Balagha, no! Just read the first sermon of Nahj al-Balagha, that's all. The first sermon is about Tawhid (the Oneness of God), about Tawhid. Now after this, we are talking about just one sermon, we are not talking about the entire Nahj al-Balagha. Compare that one sermon with all the books of Muslims, and say, "Bring one sermon like this." Not a whole discussion on Tawhid, just one sermon. We say, let alone a sermon, if they can bring even two lines, we would leave our religion. Can they bring two lines that match the claim of Ali ibn Abi Talib? Yes, because what were the other people? They were those who used to sit in the gathering of the Messenger, in the assembly of the Messenger. The Quran says in Surah Muhammad (صلى الله عليه وآله وسلم): [political commentary omitted] Slogan of Haideri, Ya Ali! [Slogan of Takbeer, Slogan of Haideri, Ya Ali!] Is it clear to you? It is a verse of the Quran, we are not saying it.
+Pick up and read Nahj al-Balagha. We are not saying the entire Nahj al-Balagha, no! Just read the first sermon of Nahj al-Balagha, that's all. The first sermon is about Tawhid (the Oneness of God), about Tawhid. Now after this, we are talking about just one sermon, we are not talking about the entire Nahj al-Balagha. Compare that one sermon with all the books of Muslims, and say, "Bring one sermon like this." Not a whole discussion on Tawhid, just one sermon. We say, let alone a sermon, if they can bring even two lines, we would leave our religion. Can they bring two lines that match the claim of Ali ibn Abi Talib? Yes, because what were the other people? They were those who used to sit in the gathering of the Messenger, in the assembly of the Messenger. The Quran says in Surah Muhammad (صلى الله عليه وآله وسلم): ... Slogan of Haideri, Ya Ali! [Slogan of Takbeer, Slogan of Haideri, Ya Ali!] Is it clear to you? It is a verse of the Quran, we are not saying it.
 
 They sit in the assembly of the Messenger, the Quran is saying, they listen to him very attentively. That is, they sat as if they understood everything. They sat like that—this is a verse of the Quran, yes, we are not saying it. They listen to your words very attentively. But:
 
@@ -469,7 +469,7 @@ So that is why Allah says in the Hadith Qudsi, Allah says, and then after that, 
 
 the Wilayah of every just leader (Imam).
 
-Now, do you know what "just" (Adil) means? A just person is—yes, in the concept of Imamate! Here we are not talking about someone who misses prayers, or a pious person who does not commit major sins but commits minor sins and repents for them; not that. Here, "just" in an Imam means he is infallible (Ma'sum) from birth to martyrdom. [political commentary omitted] From birth, he never practiced idolatry, never bowed his head before an idol, never committed Shirk (associating partners) with Allah, and never considered anyone a partner to Allah. That is the just one:
+Now, do you know what "just" (Adil) means? A just person is—yes, in the concept of Imamate! Here we are not talking about someone who misses prayers, or a pious person who does not commit major sins but commits minor sins and repents for them; not that. Here, "just" in an Imam means he is infallible (Ma'sum) from birth to martyrdom. ... From birth, he never practiced idolatry, never bowed his head before an idol, never committed Shirk (associating partners) with Allah, and never considered anyone a partner to Allah. That is the just one:
 
 اِمَامٍ عَادِلٍ مِنَ اللّٰہ
 
@@ -537,7 +537,7 @@ We will increase their goodness—meaning all other good deeds will be accepted 
 
 > **Reference:** Quran, Surah al-Shura 42:23
 
-Indeed, Allah is Forgiving and Appreciative. 
+Indeed, Allah is Forgiving and Appreciative.
 
 The verse is clear. What is the interpretation of this verse? In the interpretation of this verse, the Imam says—and who is the narrator here? Muhammad ibn Muslim. Muhammad ibn... look, recognize the narrators! Who is Muhammad ibn Muslim? Muhammad ibn Muslim is the Salman of the sixth Imam. He is the Salman of the sixth Imam. The Imam gave him 30,000 Hadiths and said, "O Muhammad! This is only for you, only for you, not for anyone else." So he gave them to him. And this Muhammad ibn Muslim narrates a Hadith from the fifth Imam, where the Imam says: "الاقتراف" (earning/acquiring), meaning what is earning goodness?
 
@@ -585,25 +585,25 @@ But from where will his repentance be accepted? His repentance will not even be 
 
 ### The Inseparability of Wilayah and Bara'ah
 
-There is a Hadith that once Imam al-Sadiq (عليه السلام) was seated, and in front of him... [political commentary omitted] An old companion of the Imam came and sat down, and the Imam deliberately performed Tabarra (disassociation) in front of him. Why? Because the Imam knows, brother, what the condition of his heart is. It is not like us; right now, for example, I assume that you are all listening, right? But it is not like that for the Imam. The Imam knows what everyone's condition is. So what did the Imam do? He deliberately performed Tabarra in front of him. As soon as he performed Tabarra, the color of his face changed. His face fell. Even though he used to come to the Imam's gathering, the gathering of the sixth Imam. The color of his face fell. He felt bad. Immediately, the Imam asked him, "Did you feel bad?" Now he could not even lie because the Imam is well aware. How could he say no to the Imam? "When smiling faces fade, know that they have been remembered," you understand, right? It is absolutely clear. The Imam said, "Did you feel bad?" He said, "Yes, I felt bad." "Why did you feel bad? Tell me! Why did you feel bad?" He said, "O Ali, why..." The Imam said, "Twenty years ago—twenty years ago, yes! Remember, your neighbor told you to take his slave-girl with you, as you were going to a certain city, and he said to leave her there, meaning at a certain place in that city. You betrayed that trust. You..." The Imam here in the Hadith—we are telling it briefly, the Hadith is a bit detailed, we are summarizing it completely. The Imam said in complete detail, "You betrayed that trust when your neighbor gave you the slave-girl, telling you to just go and leave her at a certain place. In other words, you treated her as your own slave-girl and you committed betrayal."
+There is a Hadith that once Imam al-Sadiq (عليه السلام) was seated, and in front of him... An old companion of the Imam came and sat down, and the Imam deliberately performed Tabarra (disassociation) in front of him. Why? Because the Imam knows, brother, what the condition of his heart is. It is not like us; right now, for example, I assume that you are all listening, right? But it is not like that for the Imam. The Imam knows what everyone's condition is. So what did the Imam do? He deliberately performed Tabarra in front of him. As soon as he performed Tabarra, the color of his face changed. His face fell. Even though he used to come to the Imam's gathering, the gathering of the sixth Imam. The color of his face fell. He felt bad. Immediately, the Imam asked him, "Did you feel bad?" Now he could not even lie because the Imam is well aware. How could he say no to the Imam? "When smiling faces fade, know that they have been remembered," you understand, right? It is absolutely clear. The Imam said, "Did you feel bad?" He said, "Yes, I felt bad." "Why did you feel bad? Tell me! Why did you feel bad?" He said, "O Ali, why..." The Imam said, "Twenty years ago—twenty years ago, yes! Remember, your neighbor told you to take his slave-girl with you, as you were going to a certain city, and he said to leave her there, meaning at a certain place in that city. You betrayed that trust. You..." The Imam here in the Hadith—we are telling it briefly, the Hadith is a bit detailed, we are summarizing it completely. The Imam said in complete detail, "You betrayed that trust when your neighbor gave you the slave-girl, telling you to just go and leave her at a certain place. In other words, you treated her as your own slave-girl and you committed betrayal."
 
 ## The Importance of Bara'at
 
-He said, "But I had repented. I had repented." The Imam said, "You repented, but Allah did not accept your repentance. Why did Allah not accept your repentance? Because there was no *bara'at* (disassociation), right? There was no *bara'at* alongside *wilayat*, which is why Allah did not accept your repentance either." And that is why it is necessary for a person to have *bara'at*. Look, we do not say that you should go around shouting it everywhere. Right? We do not say this. Yes, if you are fed up with a miserable life, and there is no point in living anymore, then fine, do it, there is no issue. If you have to go, then go on that path. Otherwise, it will be like the example of the rooster. You remember the example of the rooster, right? Yes. That rooster used to give the call to prayer early in the morning, so he started giving the call to prayer early in the morning. The rooster gives the call to prayer in the morning, in the narration, in the hadith. So his owner said, "Why do you give the call to prayer early in the morning? My sleep is ruined." So he said, "Brother, Allah commanded me to give the call to prayer." He said, "No, my sleep is ruined." 
+He said, "But I had repented. I had repented." The Imam said, "You repented, but Allah did not accept your repentance. Why did Allah not accept your repentance? Because there was no *bara'at* (disassociation), right? There was no *bara'at* alongside *wilayat*, which is why Allah did not accept your repentance either." And that is why it is necessary for a person to have *bara'at*. Look, we do not say that you should go around shouting it everywhere. Right? We do not say this. Yes, if you are fed up with a miserable life, and there is no point in living anymore, then fine, do it, there is no issue. If you have to go, then go on that path. Otherwise, it will be like the example of the rooster. You remember the example of the rooster, right? Yes. That rooster used to give the call to prayer early in the morning, so he started giving the call to prayer early in the morning. The rooster gives the call to prayer in the morning, in the narration, in the hadith. So his owner said, "Why do you give the call to prayer early in the morning? My sleep is ruined." So he said, "Brother, Allah commanded me to give the call to prayer." He said, "No, my sleep is ruined."
 
-That is, before telling this incident, let me tell you a little background. What is its background? Many riots occurred in Baghdad. There was only a 1% Shia population in Karkh. Only 1%. 99% were other people. 99%. But these Shias who were there were very brave. Just like you have seen now. How they put up banners and everything in Dongri. Similarly, what did they do? In their area, they would put up everything. Everything, meaning with *bara'at* and *tabarra*. So these people came. They said, "Brother, if you want unity, then delete this *tabarra*, remove it." So the youth said, "No, this will not be removed." But the elders explained, "No, look, let's not fight, this and that, etc." So on the word of the elders, they removed it. Okay, it was done, they removed it, no problem. The *tabarra* part. Then the next year they only kept the *kalima*: 
+That is, before telling this incident, let me tell you a little background. What is its background? Many riots occurred in Baghdad. There was only a 1% Shia population in Karkh. Only 1%. 99% were other people. 99%. But these Shias who were there were very brave. Just like you have seen now. How they put up banners and everything in Dongri. Similarly, what did they do? In their area, they would put up everything. Everything, meaning with *bara'at* and *tabarra*. So these people came. They said, "Brother, if you want unity, then delete this *tabarra*, remove it." So the youth said, "No, this will not be removed." But the elders explained, "No, look, let's not fight, this and that, etc." So on the word of the elders, they removed it. Okay, it was done, they removed it, no problem. The *tabarra* part. Then the next year they only kept the *kalima*:
 
 لا إله إلا الله محمد رسول الله علي ولي الله ووصي رسول الله وخلافته بلا فصل
 
-Then the next year they objected again, "This is not right. Our fight with you is because of this, you brought in 'his immediate successorship' (*khilafatuhu bila fasl*). Ali is the successor of the Messenger of Allah, immediately (*bila fasl*). So you remove this. Otherwise, there will be a fight." So the youth said, "No, this will not be removed." The elders said, "No, look, let it go, leave it, let's not fight." So the youth listened to the elders. Okay, fine, *bila fasl*. It was done, they removed that too. The next year they said, "No, you remove the name of Ali altogether. Or else, you put everyone's name from the beginning. Everyone's name should be there. Otherwise, there will be a fight again." Now what to do? They said, "The name of Ali will not be removed." A fight broke out. And then, as is their custom, they burnt books, they did this. And all of that actually happened. Completely. If they had stopped the very first time, nothing would have happened. 
+Then the next year they objected again, "This is not right. Our fight with you is because of this, you brought in 'his immediate successorship' (*khilafatuhu bila fasl*). Ali is the successor of the Messenger of Allah, immediately (*bila fasl*). So you remove this. Otherwise, there will be a fight." So the youth said, "No, this will not be removed." The elders said, "No, look, let it go, leave it, let's not fight." So the youth listened to the elders. Okay, fine, *bila fasl*. It was done, they removed that too. The next year they said, "No, you remove the name of Ali altogether. Or else, you put everyone's name from the beginning. Everyone's name should be there. Otherwise, there will be a fight again." Now what to do? They said, "The name of Ali will not be removed." A fight broke out. And then, as is their custom, they burnt books, they did this. And all of that actually happened. Completely. If they had stopped the very first time, nothing would have happened.
 
-So in the same way, this rooster too. That is why I told you the background. When the rooster spoke, they said, "Brother, do not shout loudly. Give the call to prayer quietly." So the rooster said, "Okay." The next day, the rooster reduced his volume a bit. When he reduced the volume, he said, "No, this volume is also too loud." So he reduced it further. Eventually, he said, "No, do not shout at all now, stop this morning call to prayer, my sleep is disturbed." In the end, the rooster said, "Brother, okay, you tell me." What threat did he give? "If you do not agree, I will slaughter you and eat you." From the beginning, his first threat was this: "If you do not agree, I will slaughter you and eat you." So the rooster said, "Brother, let it go, life is precious." That is why it is necessary. So the rooster agreed. Now it was seen that the rooster was agreeing to everything. Whatever was said, he agreed. So then one day he said to the rooster, "Brother, what is the benefit of your existence? Start laying eggs." He said, "Brother, I am a rooster, I do not lay eggs." He said, "No, if you do not lay them, I will slaughter you and eat you." So he said, "Brother, if you want to slaughter and eat me, then eat me, what can I do? What I cannot do, I will not do." So he slaughtered and ate him. But before that, the rooster thought that if he had said no to him the first time and he had slaughtered and eaten him, he would have been martyred in the way of Allah. [political commentary omitted]. Did you notice, you too were killed.
+So in the same way, this rooster too. That is why I told you the background. When the rooster spoke, they said, "Brother, do not shout loudly. Give the call to prayer quietly." So the rooster said, "Okay." The next day, the rooster reduced his volume a bit. When he reduced the volume, he said, "No, this volume is also too loud." So he reduced it further. Eventually, he said, "No, do not shout at all now, stop this morning call to prayer, my sleep is disturbed." In the end, the rooster said, "Brother, okay, you tell me." What threat did he give? "If you do not agree, I will slaughter you and eat you." From the beginning, his first threat was this: "If you do not agree, I will slaughter you and eat you." So the rooster said, "Brother, let it go, life is precious." That is why it is necessary. So the rooster agreed. Now it was seen that the rooster was agreeing to everything. Whatever was said, he agreed. So then one day he said to the rooster, "Brother, what is the benefit of your existence? Start laying eggs." He said, "Brother, I am a rooster, I do not lay eggs." He said, "No, if you do not lay them, I will slaughter you and eat you." So he said, "Brother, if you want to slaughter and eat me, then eat me, what can I do? What I cannot do, I will not do." So he slaughtered and ate him. But before that, the rooster thought that if he had said no to him the first time and he had slaughtered and eaten him, he would have been martyred in the way of Allah. ... Did you notice, you too were killed.
 
 خَسِرَ الدُّنْيَا وَالْآخِرَةَ ۚ ذَٰلِكَ هُوَ الْخُسْرَانُ الْمُبِينُ
 
 > **Reference:** Quran, Surah al-Hajj 22:11
 
-Loss in this world and the hereafter. This is indeed a clear loss. This is "the clear loss". 
+Loss in this world and the hereafter. This is indeed a clear loss. This is "the clear loss".
 
 ## Preserving the Truth of History
 
@@ -624,17 +624,17 @@ Tell them, and let them ask of every one of these—**who were those people?**
 - Who named their slave "Abdur Rahman"—because the killer of Ali was named Abdur Rahman—so they could call the name again and again and rejoice that Ali's killer bore it?
 - Who martyred Imam Hussain (عليه السلام)?
 
-[political commentary omitted]
+...
 
 Make it clear—tell the children, let them know, tell them the history. This must be known. Otherwise, if they do not know, one day they too will become like that. Then you will see: their belief will keep deteriorating, their belief will keep deteriorating—just as today, many people's belief has deteriorated in this very confusion.
 
-And now, do not believe us. Leave our words aside. Sayyid Murtadha Askari was a very great scholar, very great. His book is 'Ma'alim al-Madrasatayn'. Two thick, very voluminous volumes, right? Two big volumes. You can check even the English translation of that book, which is available online. Okay? Read its preface, what his belief is, what they believed, what happened? Read that. Then you will know what we are presenting. So tell the children, the youth. Otherwise, if it continues like this, then later they will say, "Brother, do not mention anything in the majalis." Otherwise, some people even feel bad when you speak ill of Yazid. You take the name of Shimr, and they feel bad because he too was a companion. This one and that one was also a companion. They felt bad, so do not take their names. Why are you taking names? Did you notice? This will be the result. This will be the result. 
+And now, do not believe us. Leave our words aside. Sayyid Murtadha Askari was a very great scholar, very great. His book is 'Ma'alim al-Madrasatayn'. Two thick, very voluminous volumes, right? Two big volumes. You can check even the English translation of that book, which is available online. Okay? Read its preface, what his belief is, what they believed, what happened? Read that. Then you will know what we are presenting. So tell the children, the youth. Otherwise, if it continues like this, then later they will say, "Brother, do not mention anything in the majalis." Otherwise, some people even feel bad when you speak ill of Yazid. You take the name of Shimr, and they feel bad because he too was a companion. This one and that one was also a companion. They felt bad, so do not take their names. Why are you taking names? Did you notice? This will be the result. This will be the result.
 
 And then what will happen in the end, do you know? In the end, a day will come when people will say, "Brother, did the event of Karbala actually happen?" An accident happened in which Imam Hussain (عليه السلام) was martyred. Which we don't know, yes, okay. In one, meaning the five-day majlis, we mentioned all of this. How the event of Karbala—meaning a man like Dhahabi, who wrote the history of Islam in two volumes, dedicated only six lines to the event of Karbala, six lines. And in those six lines, he says, "Yes, something happened in Karbala." Why? Because that is the line. If we start taking names, many problems will arise. Inshallah, during these days of mourning, if Allah gives the opportunity and life, if there are more majalis, we will present a little history to you. What was the history of the people of Kufa? Those who say, "The Shias killed him, the Shias killed him." We will present that to you so that you know who actually killed him. We will try. Inshallah, if Allah gives the opportunity and life. So this event of Karbala is very important. This is very significant, and that is why in the 12 majalis, we presented that...
 
 ## The Tragedy of Karbala
 
-It is not just about sitting down and giving this love of Hussain to your children. Bring the children to these majalis, to these gatherings. If they are days of joy, bring them to the gatherings; if they are days of grief, bring them to the majalis so that they understand how grief is observed, so that they know how matam is performed. It shouldn't be that they just watch others; they should know how Ziyarat is recited, how it is read, how it is taught. They should know all these things, they should know this culture. And Imam Hussain (عليه السلام) brought such individuals to Karbala that there was a representation for every age. There was a representation for every age. 
+It is not just about sitting down and giving this love of Hussain to your children. Bring the children to these majalis, to these gatherings. If they are days of joy, bring them to the gatherings; if they are days of grief, bring them to the majalis so that they understand how grief is observed, so that they know how matam is performed. It shouldn't be that they just watch others; they should know how Ziyarat is recited, how it is read, how it is taught. They should know all these things, they should know this culture. And Imam Hussain (عليه السلام) brought such individuals to Karbala that there was a representation for every age. There was a representation for every age.
 
 Until that time came in Karbala when Imam Hussain (عليه السلام) once called out:
 
@@ -642,9 +642,9 @@ Until that time came in Karbala when Imam Hussain (عليه السلام) once c
 
 > **Reference:** [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/518133) (Allamah Majlisi (a.r.)), vol. 45, pp. 12–13, H. 70058 — Imam Hussain's (عليه السلام) istighatha on Ashura, from al-Irshad (Shaikh Mufid (a.r.))
 
-Is there any helper to help us? Is there any rescuer to rescue us? Is there any defender to defend the sanctuary of the Messenger of Allah, is there anyone to defend the family of the sanctuary? 
+Is there any helper to help us? Is there any rescuer to rescue us? Is there any defender to defend the sanctuary of the Messenger of Allah, is there anyone to defend the family of the sanctuary?
 
-As soon as Hussain raised this cry for help, a clamor arose in the tents. Imam Hussain (عليه السلام) came to the door of the tent. "O Bibi Zainab (عليها السلام), what is this clamor?" She said, "Brother, you raised the cry for help, and the prince threw himself from his cradle." He said, "Sister, give Asghar to me." Princess Zainab (عليها السلام) said, "No, he is not going into anyone's lap; you yourself come and speak to him." Hussain came to the cradle, and the sentence of the Maqtal is: Hussain bent down, and what you said and what the child understood, no one knows. It is only written that Asghar leaped into Hussain's lap. 
+As soon as Hussain raised this cry for help, a clamor arose in the tents. Imam Hussain (عليه السلام) came to the door of the tent. "O Bibi Zainab (عليها السلام), what is this clamor?" She said, "Brother, you raised the cry for help, and the prince threw himself from his cradle." He said, "Sister, give Asghar to me." Princess Zainab (عليها السلام) said, "No, he is not going into anyone's lap; you yourself come and speak to him." Hussain came to the cradle, and the sentence of the Maqtal is: Hussain bent down, and what you said and what the child understood, no one knows. It is only written that Asghar leaped into Hussain's lap.
 
 Perhaps Asghar was saying, "Father, everyone else had feet and was walking, but I do not have feet, yet I will come through you, I too will be sacrificed for you." Now Hussain walks carrying Asghar. As soon as he reaches the door of the tent, he sees Rubab standing there. He said, "Rubab, why are you standing here?" Rubab replied, "I am watching that whoever went to the battlefield since morning has not returned alive, so I want to see my beloved child one last time." Hussain explained, "Rubab, until now, whoever went to the battlefield, the enemy thought they came to fight, so they martyred them, they killed them. Do six-month-old babies fight in jihad? Look, I am taking Asghar, and if possible, I will bring him back after giving him water." The mother's heart was reassured. Hussain came to an elevated place and showed Asghar to the army of the wretched, and asked:
 
@@ -654,7 +654,7 @@ Perhaps Asghar was saying, "Father, everyone else had feet and was walking, but 
 
 كَيْفَ يَتَلَظَّى
 
-Do you see how he is writhing in thirst? Sometimes he opens his lips, sometimes he closes his lips." 
+Do you see how he is writhing in thirst? Sometimes he opens his lips, sometimes he closes his lips."
 
 ## The Martyrdom of Ali Asghar
 
@@ -662,7 +662,7 @@ Now, hearing Hussain's words, the wretched once turned their faces away and bega
 
 اِقْطَعْ كَلَامَ الْحُسَيْنِ
 
-"Cut off Hussain's speech, silence Hussain's voice." That cursed one pulled the bow with force, drew a three-pronged arrow from the quiver, took aim, and shot it at the throat of six-month-old Asghar. The arrow pierced through, and the other side of the arrow struck Hussain's arm. The child fluttered in his father's lap, and when Hussain looked down, there was a smile on Asghar's face. 
+"Cut off Hussain's speech, silence Hussain's voice." That cursed one pulled the bow with force, drew a three-pronged arrow from the quiver, took aim, and shot it at the throat of six-month-old Asghar. The arrow pierced through, and the other side of the arrow struck Hussain's arm. The child fluttered in his father's lap, and when Hussain looked down, there was a smile on Asghar's face.
 
 Now Hussain wants to take Asghar back to the tents for the final farewell. As he approaches the tents, the thought comes to his mind, "I do not know if the mother will be able to bear this or not." Thinking this, Hussain turns back.
 
@@ -676,10 +676,10 @@ Seven times Hussain performed this action. Then finally, the thought came, "Now 
 
 > **Reference:** Quran, Surah al-Shuaraa 26:227 (closing phrase وَالْعَاقِبَةُ لِلْمُتَّقِينَ — cf. Surah al-Araf 7:128)
 
-O Lord, hasten the reappearance of Imam al-Zaman (عليه السلام).  
-O Lord, hasten the reappearance of Imam al-Zaman (عليه السلام).  
-O Lord, hasten the reappearance of Imam al-Zaman (عليه السلام).  
-Hasten the reappearance of the avenger of the blood of Hussain (عليه السلام).  
+O Lord, hasten the reappearance of Imam al-Zaman (عليه السلام).
+O Lord, hasten the reappearance of Imam al-Zaman (عليه السلام).
+O Lord, hasten the reappearance of Imam al-Zaman (عليه السلام).
+Hasten the reappearance of the avenger of the blood of Hussain (عليه السلام).
 Count us among his helpers and companions.
 
 ---
@@ -687,26 +687,26 @@ Count us among his helpers and companions.
 ## Conclusion and Key Takeaways
 
 - Allah invites humanity to compete in doing good deeds and to hasten toward His forgiveness and a Paradise as vast as the heavens and the earth, which is prepared for the pious:
-  سارعوا الی مغفرة
-  > **Reference:** Quran, Surah Aal-e-Imran 3:133
-  اعدت للمتقین
-  > **Reference:** Quran, Surah Aal-e-Imran 3:133
+ سارعوا الی مغفرة
+ > **Reference:** Quran, Surah Aal-e-Imran 3:133
+ اعدت للمتقین
+ > **Reference:** Quran, Surah Aal-e-Imran 3:133
 - According to Islamic narrations, the primary and foremost manifestation of piety (taqwa) is the Wilayah (guardianship) of Ali ibn Abi Talib (عليه السلام), and true piety cannot exist without it.
 - When people commit sins and wrong themselves, the best way to seek forgiveness from Allah is by using the Prophet (صلى الله عليه وآله وسلم) and his family as a means (wasilah):
-  الذین اذا ظلموا انفسهم جاؤکا
-  > **Reference:** Quran, Surah al-Nisa 4:64
+ الذین اذا ظلموا انفسهم جاؤکا
+ > **Reference:** Quran, Surah al-Nisa 4:64
 - True repentance requires a commitment to not repeat the sin; anyone who repeatedly asks for forgiveness while continuing to commit the same sin is only mocking themselves.
 - Having knowledge alone is insufficient; it must be accompanied by action. Imam Ali (عليه السلام) stated that the perfection of religion lies in seeking knowledge and acting upon it:
-  ان كمال الدین طلب العلم والعمل بہ
-  > **Reference:** [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/303711) (Ibn Shuba al-Harrani (a.r.), 4th c. AH), vol. 1, pp. 199–200, H. 228 — Imam Ali (عليه السلام)
+ ان كمال الدین طلب العلم والعمل بہ
+ > **Reference:** [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/303711) (Ibn Shuba al-Harrani (a.r.), 4th c. AH), vol. 1, pp. 199–200, H. 228 — Imam Ali (عليه السلام)
 - When Allah desires good for a person, He instills the love of Imam Hussain (عليه السلام) and the desire for his visitation (ziyarah) in their heart:
-  من اراد اللہ بہ الخیر قذف فی قلبہ حب الحسین و حب زیارتہ
-  > **Reference:** [Kamil al-Ziyaraat](https://hadith.ahlebaytrepo.com/01526/h/352629) (Ibn Qulawayh (a.r.), d. 367 AH), vol. 1, p. 142, H. 370 — Imam al-Sadiq (عليه السلام)
+ من اراد اللہ بہ الخیر قذف فی قلبہ حب الحسین و حب زیارتہ
+ > **Reference:** [Kamil al-Ziyaraat](https://hadith.ahlebaytrepo.com/01526/h/352629) (Ibn Qulawayh (a.r.), d. 367 AH), vol. 1, p. 142, H. 370 — Imam al-Sadiq (عليه السلام)
 - True recognition (ma'rifah) of the Imam (عليه السلام) is essential; without it, even those who engage in extensive worship—such as the Kharijites—can go astray and fail to recognize the true guide of their time.
 - The Imams (عليه السلام) are the divinely appointed means through whom Allah rescues people from misguidance, blindness, and ignorance:
-  نَحْنُ الَّذِينَ أَنْقَذَ اللهُ النَّاسَ بِنا مِنَ الضَّلالَةِ
-  > **Reference:** [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/226025) (Allamah Majlisi (a.r.), d. 1110 AH), vol. 10, pp. 208–209, H. 5088 — Imam al-Sadiq (عليه السلام), from Taweel al-Ayaat / Kanz Jami al-Fawaid
+ نَحْنُ الَّذِينَ أَنْقَذَ اللهُ النَّاسَ بِنا مِنَ الضَّلالَةِ
+ > **Reference:** [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/226025) (Allamah Majlisi (a.r.), d. 1110 AH), vol. 10, pp. 208–209, H. 5088 — Imam al-Sadiq (عليه السلام), from Taweel al-Ayaat / Kanz Jami al-Fawaid
 - Imamat and Khilafat are divine positions appointed solely by Allah, and a true Imam (عليه السلام) is recognized through his divinely endowed knowledge, which surpasses all others.
 - According to Imam Jafar al-Sadiq (عليه السلام), even if a person prostrates in worship until their neck breaks, Allah will not accept their repentance unless they possess the Wilayah of the Ahl al-Bayt:
-  وَاللَّهِ لَوْ سَجَدَ حَتَّى يَنْقَطِعَ عُنُقُهُ مَا قَبِلَ اللَّهُ تَوْبَةً إِلَّا بِوِلَايَتِنَا أَهْلَ الْبَيْتِ
-  > **Reference:** [Al-Khisaal](https://hadith.ahlebaytrepo.com/01462/h/315466) (Shaikh Saduq (a.r.), d. 381 AH), vol. 1, p. 41, H. 142 — Imam al-Sadiq (عليه السلام) via Hafs ibn Ghiyath al-Nakhai
+ وَاللَّهِ لَوْ سَجَدَ حَتَّى يَنْقَطِعَ عُنُقُهُ مَا قَبِلَ اللَّهُ تَوْبَةً إِلَّا بِوِلَايَتِنَا أَهْلَ الْبَيْتِ
+ > **Reference:** [Al-Khisaal](https://hadith.ahlebaytrepo.com/01462/h/315466) (Shaikh Saduq (a.r.), d. 381 AH), vol. 1, p. 41, H. 142 — Imam al-Sadiq (عليه السلام) via Hafs ibn Ghiyath al-Nakhai

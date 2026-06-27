@@ -2,45 +2,45 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi  
-**Venue:** Mahdiyyah, Bandra West  
-**Date:** June 22, 2026 | 6th Moharram 1447 AH  
-**Series:** Lecture 7 - Moharram 2026  
-**YouTube:** [Majlis 6 | Sakhaawat](https://www.youtube.com/watch?v=qWx8Rz1xkXs)  
+**Speaker:** Dr. Shabeeb Rizvi
+**Venue:** Mahdiyyah, Bandra West
+**Date:** June 22, 2026 | 6th Moharram 1447 AH
+**Series:** Lecture 7 - Moharram 2026
+**YouTube:** [Majlis 6 | Sakhaawat](https://www.youtube.com/watch?v=qWx8Rz1xkXs)
 
 ---
 
 ## Table of Contents
 
 - [Competing in Good Deeds](#competing-in-good-deeds)
-  - [The Unique Status of the Ahl al-Bayt](#the-unique-status-of-the-ahl-al-bayt)
+ - [The Unique Status of the Ahl al-Bayt](#the-unique-status-of-the-ahl-al-bayt)
 - [The Beloved of the Heavens](#the-beloved-of-the-heavens)
 - [The Ahl al-Bayt as the Light of Allah](#the-ahl-al-bayt-as-the-light-of-allah)
 - [Fabricated Hadiths and Enmity Against the Ahl al-Bayt](#fabricated-hadiths-and-enmity-against-the-ahl-al-bayt)
 - [Abu Khalid al-Kabli and Imam Zayn al-Abidin](#abu-khalid-al-kabli-and-imam-zayn-al-abidin)
 - [The Meaning of "Light" in the Quran](#the-meaning-of-light-in-the-quran)
 - [The Ahl al-Bayt as the Essential Light of Existence](#the-ahl-al-bayt-as-the-essential-light-of-existence)
-  - [The Verse of Light](#the-verse-of-light)
+ - [The Verse of Light](#the-verse-of-light)
 - [The Light of the Imam in the Hearts of Believers](#the-light-of-the-imam-in-the-hearts-of-believers)
-  - [The Distribution of Light in This World](#the-distribution-of-light-in-this-world)
+ - [The Distribution of Light in This World](#the-distribution-of-light-in-this-world)
 - [Purity of Heart as a Prerequisite for Light](#purity-of-heart-as-a-prerequisite-for-light)
-  - [True Knowledge and the Spiritual Recognition of Ali (عليه السلام)](#true-knowledge-and-the-spiritual-recognition-of-ali-عليه-السلام)
+ - [True Knowledge and the Spiritual Recognition of Ali (عليه السلام)](#true-knowledge-and-the-spiritual-recognition-of-ali-عليه-السلام)
 - [Submission to the Ahl al-Bayt](#submission-to-the-ahl-al-bayt)
-  - [Handling Difficult Hadiths](#handling-difficult-hadiths)
-  - [The Example of Kulayb al-Taslim](#the-example-of-kulayb-al-taslim)
+ - [Handling Difficult Hadiths](#handling-difficult-hadiths)
+ - [The Example of Kulayb al-Taslim](#the-example-of-kulayb-al-taslim)
 - [The Great Terror of the Day of Judgment](#the-great-terror-of-the-day-of-judgment)
-  - [The Unmatched Status of the Ahl al-Bayt](#the-unmatched-status-of-the-ahl-al-bayt)
+ - [The Unmatched Status of the Ahl al-Bayt](#the-unmatched-status-of-the-ahl-al-bayt)
 - [Three Whose Supplications Are Never Rejected](#three-whose-supplications-are-never-rejected)
-  - [The Power of Repentance and Du'a Kumayl](#the-power-of-repentance-and-dua-kumayl)
+ - [The Power of Repentance and Du'a Kumayl](#the-power-of-repentance-and-dua-kumayl)
 - [Three Whom the Fire of Hell Will Not Touch](#three-whom-the-fire-of-hell-will-not-touch)
 - [Upbringing and the Example of Umm al-Banin](#upbringing-and-the-example-of-umm-al-banin)
 - [The Greatness and Sacrifice of Hazrat Abbas (عليه السلام)](#the-greatness-and-sacrifice-of-hazrat-abbas-عليه-السلام)
-  - [The Tragedy at the Euphrates](#the-tragedy-at-the-euphrates)
-  - [The Final Moments and Supplications](#the-final-moments-and-supplications)
+ - [The Tragedy at the Euphrates](#the-tragedy-at-the-euphrates)
+ - [The Final Moments and Supplications](#the-final-moments-and-supplications)
 
 ## Summary
 
-The lecture focuses on the Quranic verse "فاستبقوا الخیرات" as the central theme of the gatherings, emphasizing the importance of gaining a deeper recognition (ma'rifat) of the Ahl al-Bayt (عليه السلام) and Imam Hussain (عليه السلام). The speaker explains that proper recognition prevents comparing the infallible Imams to ordinary people, as the Imams themselves stated that no one can be compared to them [political commentary omitted]. To highlight this supreme status, the speaker shares a narration from Prophet Muhammad (صلى الله عليه وآله وسلم):
+The lecture focuses on the Quranic verse "فاستبقوا الخیرات" as the central theme of the gatherings, emphasizing the importance of gaining a deeper recognition (ma'rifat) of the Ahl al-Bayt (عليه السلام) and Imam Hussain (عليه السلام). The speaker explains that proper recognition prevents comparing the infallible Imams to ordinary people, as the Imams themselves stated that no one can be compared to them ... To highlight this supreme status, the speaker shares a narration from Prophet Muhammad (صلى الله عليه وآله وسلم):
 
 من احب ان ینظر الی احب اہل الارض الی اہل السماء فلینظر الی الحسین
 > Reference:
@@ -63,46 +63,46 @@ Drawing from Surah al-Hadid, the speaker explains that on the Day of Judgment, h
 
 ---
 
-رحم اللہ من قراء الفاتحہ بسم اللہ الرحمن الرحیم 
-اعوذ باللہ السمیع العلیم من الشیطن الرجیم 
-بسم اللہ الرحمن الرحیم 
-لا حول ولا قوۃ الا باللہ العلی العظیم 
-حسبنا اللہ ونعم الوکیل 
-نعم المولی ونعم النصیر 
-الحمدللہ رب العالمین 
-والعاقبۃ لاہل التقوی والیقین 
-والصلوۃ والسلام علی اشرف الانبیاء والمرسلین 
-حبیب الہ العالمین ابوالقاسم محمد 
-اللہم صل علی محمد وال محمد وعجل فرجہم 
-صلی اللہ علیہ والہ المعصومین 
-الذین اذھب اللہ عنہم الرجس وطھرھم تطہیرا 
-اللہم صل علی محمد وال محمد وعجل فرجہم 
-سیما بقیۃ اللہ فی الارضین 
-امام زماننا وولی امرنا 
-وصاحبنا ومولانا 
-وحبیبنا وطبیبنا 
-وانیسنا ومونسنا 
-الکافی الحسین 
-وغیاث مضطر المستکین 
-روحی وارواح العالمین لہ الفداء 
-اما بعد فقد قال اللہ تبارک وتعالی فی کتابہ المجید وقولہ الحق 
-وھو اصدق القائلین 
-فاستبقوا الخیرات 
+رحم اللہ من قراء الفاتحہ بسم اللہ الرحمن الرحیم
+اعوذ باللہ السمیع العلیم من الشیطن الرجیم
+بسم اللہ الرحمن الرحیم
+لا حول ولا قوۃ الا باللہ العلی العظیم
+حسبنا اللہ ونعم الوکیل
+نعم المولی ونعم النصیر
+الحمدللہ رب العالمین
+والعاقبۃ لاہل التقوی والیقین
+والصلوۃ والسلام علی اشرف الانبیاء والمرسلین
+حبیب الہ العالمین ابوالقاسم محمد
+اللہم صل علی محمد وال محمد وعجل فرجہم
+صلی اللہ علیہ والہ المعصومین
+الذین اذھب اللہ عنہم الرجس وطھرھم تطہیرا
+اللہم صل علی محمد وال محمد وعجل فرجہم
+سیما بقیۃ اللہ فی الارضین
+امام زماننا وولی امرنا
+وصاحبنا ومولانا
+وحبیبنا وطبیبنا
+وانیسنا ومونسنا
+الکافی الحسین
+وغیاث مضطر المستکین
+روحی وارواح العالمین لہ الفداء
+اما بعد فقد قال اللہ تبارک وتعالی فی کتابہ المجید وقولہ الحق
+وھو اصدق القائلین
+فاستبقوا الخیرات
 
 > Reference:
 
-صدق اللہ العلی العظیم 
-صلی اللہ علیک یا ابا عبداللہ 
-صلی اللہ علیک یا ابا عبداللہ 
-صلی اللہ علیک یا ابا عبداللہ 
-صلوات 
-اللہم صل علی محمد وال محمد وعجل فرجہم 
+صدق اللہ العلی العظیم
+صلی اللہ علیک یا ابا عبداللہ
+صلی اللہ علیک یا ابا عبداللہ
+صلی اللہ علیک یا ابا عبداللہ
+صلوات
+اللہم صل علی محمد وال محمد وعجل فرجہم
 
 ## Competing in Good Deeds
 
 The noble verse that I have had the honor of reciting, and which has been chosen as the theme for this series of ten lectures, is where Allah, the Exalted, says:
 
-فاستبقوا الخیرات 
+فاستبقوا الخیرات
 
 > Reference:
 
@@ -112,19 +112,19 @@ The noble verse that I have had the honor of reciting, and which has been chosen
 
 Along with this, the effort has been to have a brief introduction in every gathering about the sacred personalities of Imam Hussain (عليه السلام) and the infallible Imams (عليه السلام), so that, God willing, it increases our recognition (ma'rifah). Because if we have this recognition, we will understand who the Ahl al-Bayt are and who Imam Hussain (عليه السلام) is. If, God willing, we understand even a little bit about who the Ahl al-Bayt are and who the Imam of our Time (Imam Zaman) is, we will never compare anyone to them. We won't say things like, "This person is the Hussain of our time," or "That person is the Imam Hussain of this era." Such comparisons and statements will not be made, and this is indeed one of our established principles.
 
-It is among the principles of Imamate that the Imam says: [political commentary omitted] meaning, "We cannot be compared to anyone among the people." Therefore, no one should even try to think that someone is like this Imam or that Imam. No one can be like them; there is absolutely no comparison. So, let us try to present one or two Hadiths in your service. The first Hadith is from *Manaqib Ibn Shahr Ashub*, where the Holy Prophet (صلى الله عليه وآله وسلم) says:
+It is among the principles of Imamate that the Imam says: ... meaning, "We cannot be compared to anyone among the people." Therefore, no one should even try to think that someone is like this Imam or that Imam. No one can be like them; there is absolutely no comparison. So, let us try to present one or two Hadiths in your service. The first Hadith is from *Manaqib Ibn Shahr Ashub*, where the Holy Prophet (صلى الله عليه وآله وسلم) says:
 
-اللہم صل علی محمد وال محمد وعجل فرجہم 
+اللہم صل علی محمد وال محمد وعجل فرجہم
 
 ## The Beloved of the Heavens
 
-من احب ان ینظر الی احب اہل الارض الی اہل السماء 
+من احب ان ینظر الی احب اہل الارض الی اہل السماء
 
 > Reference:
 
 There is a beautiful subtlety and eloquence in this sentence:
 
-من احب ان ینظر الی احب اہل الارض الی اہل السماء 
+من احب ان ینظر الی احب اہل الارض الی اہل السماء
 
 > Reference:
 
@@ -136,7 +136,7 @@ If anyone in the entire world wishes to look at the personality who is most belo
 
 And who is it on the entire earth whom all the inhabitants of the heavens love the most?
 
-فلینظر الی الحسین 
+فلینظر الی الحسین
 
 > Reference:
 
@@ -156,7 +156,7 @@ Just come to the door of Hussain (عليه السلام).
 
 And you will get Paradise, and when you get Paradise, God willing, you will surely get the *Hoor al-Ayn* as well. Please recite a Salawat for Muhammad and the progeny of Muhammad.
 
-اللہم صل علی محمد وال محمد وعجل فرجہم 
+اللہم صل علی محمد وال محمد وعجل فرجہم
 
 ## The Ahl al-Bayt as the Light of Allah
 
@@ -164,7 +164,7 @@ So, this is one aspect. Let me present another Hadith to you. You see, our job i
 
 Now, look at this Hadith that I am about to present to you. Sheikh al-Kulayni has narrated this tradition in the first volume of his *Al-Kafi*, in *Kitab al-Hujjah*. First, he introduces a chapter in *Kitab al-Hujjah* titled:
 
-باب ان الائمۃ علیھم السلام نور اللہ عزوجل 
+باب ان الائمۃ علیھم السلام نور اللہ عزوجل
 
 The Ahl al-Bayt are the light of Allah.
 
@@ -176,7 +176,7 @@ There are many Hadiths, hundreds of them. Mir Hamid Husayn al-Hindi (رضوان 
 
 One Hadith, yes, look at the Hadith of Light. In it, Mir Hamid Husayn al-Hindi (رضوان اللہ تعالی علیہ) took the single Hadith:
 
-انا وعلی من نور واحد 
+انا وعلی من نور واحد
 
 > Reference:
 
@@ -246,11 +246,11 @@ Who are we? نحن الكاف بين الكاف والنون (We are the *Kaf* b
 
 وَهُمْ وَاللَّهِ النُّورُ الَّذِي أَنْزَلَ
 
-By God! The Ahl al-Bayt (عليهم السلام) are the light that Allah sent down. 
+By God! The Ahl al-Bayt (عليهم السلام) are the light that Allah sent down.
 
 وَهُمْ وَاللَّهِ نُورُ اللَّهِ فِي السَّمَاوَاتِ وَالْأَرْضِ
 
-The Ahl al-Bayt (عليهم السلام) are the light of Allah in the heavens and the earth. You have heard the verse of Surah an-Nur: 
+The Ahl al-Bayt (عليهم السلام) are the light of Allah in the heavens and the earth. You have heard the verse of Surah an-Nur:
 
 اللَّهُ نُورُ السَّمَاوَاتِ وَالْأَرْضِ
 
@@ -270,11 +270,11 @@ You can read the entire verse, this is the verse of Surah an-Nur. So in whose ho
 
 وَهُمْ وَاللَّهِ نُورُ السَّمَاوَاتِ وَالْأَرْضِ، وَاللَّهِ يَا أَبَا خَالِدٍ!
 
-By God, O Aba Khalid! Now listen from here, this is the useful part. All of it was useful, but this is what relates to us. 
+By God, O Aba Khalid! Now listen from here, this is the useful part. All of it was useful, but this is what relates to us.
 
 لَنُورُ الْإِمَامِ فِي قُلُوبِ الْمُؤْمِنِينَ
 
-The light of the Imam (عليه السلام) in the hearts of the believers is more radiant than... uh... 
+The light of the Imam (عليه السلام) in the hearts of the believers is more radiant than... uh...
 
 أَنْوَرُ مِنَ الشَّمْسِ الْمُضِيئَةِ بِالنَّهَارِ
 
@@ -296,11 +296,11 @@ This is the grace of Allah, He gives it to whom He wills. And Allah is the posse
 
 > Reference:
 
-Allah singles out for His mercy whom He wills; He does not give it to everyone. So He has given this to the believers, the hearts of the believers. 
+Allah singles out for His mercy whom He wills; He does not give it to everyone. So He has given this to the believers, the hearts of the believers.
 
 وَيَحْجُبُ اللَّهُ عَزَّ وَجَلَّ نُورَهُمْ عَمَّنْ يَشَاءُ
 
-And Allah, the Almighty and Majestic, veils their light from whomsoever He wills. He hides it. He places a veil. He puts a curtain between them and this light. What is the result? 
+And Allah, the Almighty and Majestic, veils their light from whomsoever He wills. He hides it. He places a veil. He puts a curtain between them and this light. What is the result?
 
 فَتُظْلَمُ قُلُوبُهُمْ
 
@@ -308,7 +308,7 @@ Therefore their hearts become dark, they become pitch black. Now they cannot ben
 
 ### The Distribution of Light in This World
 
-Now here, let us turn to the Quran again, a verse of Surah al-Hadid. It is a very important verse. Look, whatever light you need, its distribution—which in Arabic is *tawzi'*, meaning its distribution—whatever it is in this world, is limited to this world. What system has Allah established for it? The system Allah has established is that this light will only be available in this world. Whatever benefit you want to derive from this light, the light of the Ahl al-Bayt (عليهم السلام), once your eyes close, you can no longer benefit from it. It is possible that Allah may show grace to some people and grant it in *Barzakh* (the purgatory), but in the Day of Judgment, absolutely not. And this is the verse of Surah al-Hadid. In the Quran, in Surah al-Hadid, Allah says that the hypocritical men and hypocritical women (*munafiqin* and *munafiqat*)—meaning both are mentioned, men and women. This meant that in that era, there were some men and some women who were formally hypocrites, right? Both, meaning equally. And that becomes apparent, look, whoever comes to fight in battle, understand [political commentary omitted] whoever comes to fight against the Messenger of Allah (صلى الله عليه وآله وسلم), whoever comes to fight against the Commander of the Faithful (عليه السلام)—it is clear, there is no need to even take anyone's name, look. If a person is wise, there is no need to take names. It is absolutely clear. And it is not like we are just saying this, no. It is formally written in the books of the Sufis, by great scholars—meaning Qadi, Hazrat, like al-Taftazani, these are big names, theologians we are mentioning—who say that whoever is the ruler of the time, this is their belief: to rebel against the ruler of the time is forbidden (*haram*), and whoever does this deserves to be killed, and they exit the fold of faith. So now you have seen, right? So if they apply this standard, then that's it for you. 
+Now here, let us turn to the Quran again, a verse of Surah al-Hadid. It is a very important verse. Look, whatever light you need, its distribution—which in Arabic is *tawzi'*, meaning its distribution—whatever it is in this world, is limited to this world. What system has Allah established for it? The system Allah has established is that this light will only be available in this world. Whatever benefit you want to derive from this light, the light of the Ahl al-Bayt (عليهم السلام), once your eyes close, you can no longer benefit from it. It is possible that Allah may show grace to some people and grant it in *Barzakh* (the purgatory), but in the Day of Judgment, absolutely not. And this is the verse of Surah al-Hadid. In the Quran, in Surah al-Hadid, Allah says that the hypocritical men and hypocritical women (*munafiqin* and *munafiqat*)—meaning both are mentioned, men and women. This meant that in that era, there were some men and some women who were formally hypocrites, right? Both, meaning equally. And that becomes apparent, look, whoever comes to fight in battle, understand ... whoever comes to fight against the Messenger of Allah (صلى الله عليه وآله وسلم), whoever comes to fight against the Commander of the Faithful (عليه السلام)—it is clear, there is no need to even take anyone's name, look. If a person is wise, there is no need to take names. It is absolutely clear. And it is not like we are just saying this, no. It is formally written in the books of the Sufis, by great scholars—meaning Qadi, Hazrat, like al-Taftazani, these are big names, theologians we are mentioning—who say that whoever is the ruler of the time, this is their belief: to rebel against the ruler of the time is forbidden (*haram*), and whoever does this deserves to be killed, and they exit the fold of faith. So now you have seen, right? So if they apply this standard, then that's it for you.
 
 Anyway, on the Day of Judgment, the hypocritical men and women will say to whom? To the believing men and believing women. They will say to the believing men and believing women, "Give us a little of your light." Because they will be in darkness, in obscurity, they will be in absolute darkness. And there they will see light everywhere. So they will say—here it is completely dark, darkness here, and light there. So they will ask them for light. Now I think the matter is becoming clear, isn't it? Absolutely clear. Meaning, if someone is walking on a path where there are many different pits—pits meaning potholes, in Bombay they call it *khadda*, right?—there are pits, and snakes, dragons, scorpions, every kind of danger is there, and it is dark, pitch black.
 
@@ -380,15 +380,15 @@ If it is commanded, then now we must submit to them. If something they say is no
 
 ### The Example of Kulayb al-Taslim
 
-So, to submit. That is why the narrator said—this is in *Usul al-Kafi*, in the first volume, in the chapter named "Bab al-Taslim wa Fadl al-Musallimin" (The Chapter of Submission and the Virtue of Those Who Submit)—in it, the narrator said to the Imam, "One of your companions, one of your lovers, whose name is Kulayb, submits so much to your hadiths, he submits, accepts your words so much, that we only have to say to him, 'Al-Baqir said' or 'Al-Sadiq said,' and he says, 'We submit (سلمنا), I have submitted, I have accepted.' He accepts so much that we have named him Kulayb al-Taslim—meaning Kulayb the Submissive." When the Imam heard this, he prayed for him. The Imam said, "May Allah have mercy on him (رحم اللہ)." This is what is called submission. This itself is a very vast subject, God willing we will discuss it some other time. 
+So, to submit. That is why the narrator said—this is in *Usul al-Kafi*, in the first volume, in the chapter named "Bab al-Taslim wa Fadl al-Musallimin" (The Chapter of Submission and the Virtue of Those Who Submit)—in it, the narrator said to the Imam, "One of your companions, one of your lovers, whose name is Kulayb, submits so much to your hadiths, he submits, accepts your words so much, that we only have to say to him, 'Al-Baqir said' or 'Al-Sadiq said,' and he says, 'We submit (سلمنا), I have submitted, I have accepted.' He accepts so much that we have named him Kulayb al-Taslim—meaning Kulayb the Submissive." When the Imam heard this, he prayed for him. The Imam said, "May Allah have mercy on him (رحم اللہ)." This is what is called submission. This itself is a very vast subject, God willing we will discuss it some other time.
 
 Then the Imam says, "And he should be at peace with us (و یکون السلم لنا)." Submit, and do not wage war against us; there should be no malice, no grudge, no enmity against us in his heart. Only then will Allah purify his heart. "So if he is at peace with us (فاذا کان سلما لنا)"—if he indeed makes peace with us, submits, does not wage war, submits, Allah will protect him from the severe reckoning of the Day of Judgment. There will be no reckoning for him on the Day of Judgment, and Allah will protect him from the Great Terror (Faza' al-Akbar) on the Day of Judgment and grant him peace.
 
 ## The Great Terror of the Day of Judgment
 
-The Great Terror (Faza' al-Akbar) is a stage of the Day of Judgment. It is called Faza' al-Akbar; it is in the Quran, "al-Faza' al-Akbar" (الفضاء الاکبر). Faza' means fear, and Akbar means greatest—the Greatest Fear. You know that there are 50 stages of the Day of Judgment. There are 50 stages on the Day of Judgment, each stage is 1,000 years long. So what will be the total duration of the Day of Judgment? 50,000 years. The Day of Judgment will be 50,000 years, okay? This is the total duration of the Day of Judgment, its period will be 50,000 years. Is it clear to you or not? 50,000 years. Out of this, for 1,000 years, there will only be the Great Terror. The Great Terror, the Greatest Fear. That is, at that time, the condition will be such that there will be blackness and darkness all around, and people will be sweating so much out of fear that in different hadiths it is written that the sweat will reach up to the knees, and in some, it is written up to here, even up to here. People will be so terrified. 
+The Great Terror (Faza' al-Akbar) is a stage of the Day of Judgment. It is called Faza' al-Akbar; it is in the Quran, "al-Faza' al-Akbar" (الفضاء الاکبر). Faza' means fear, and Akbar means greatest—the Greatest Fear. You know that there are 50 stages of the Day of Judgment. There are 50 stages on the Day of Judgment, each stage is 1,000 years long. So what will be the total duration of the Day of Judgment? 50,000 years. The Day of Judgment will be 50,000 years, okay? This is the total duration of the Day of Judgment, its period will be 50,000 years. Is it clear to you or not? 50,000 years. Out of this, for 1,000 years, there will only be the Great Terror. The Great Terror, the Greatest Fear. That is, at that time, the condition will be such that there will be blackness and darkness all around, and people will be sweating so much out of fear that in different hadiths it is written that the sweat will reach up to the knees, and in some, it is written up to here, even up to here. People will be so terrified.
 
-And it is written in a hadith that at that time, only that person will be safe who used to give the Adhan before prayers, who gave the Adhan before his prayers, "al-Mu'adhdhinun" (المؤذنون). In any case, the Imam says that whoever holds our Wilayah will remain protected, will be safe from the Great Terror, from the Day of Judgment, and will be protected from the severe reckoning. It is very amazing. 
+And it is written in a hadith that at that time, only that person will be safe who used to give the Adhan before prayers, who gave the Adhan before his prayers, "al-Mu'adhdhinun" (المؤذنون). In any case, the Imam says that whoever holds our Wilayah will remain protected, will be safe from the Great Terror, from the Day of Judgment, and will be protected from the severe reckoning. It is very amazing.
 
 ### The Unmatched Status of the Ahl al-Bayt
 
@@ -434,7 +434,7 @@ Then the Imam, the Prophet says:
 
 > Reference:
 
-And there are three individuals whom the Fire will not touch. The Prophet is giving a guarantee, brother. Look, we are not saying this, we are quoting a hadith. It is a hadith from *Irshad al-Qulub*. We have also given the reference. The late Daylami—the author's name is Daylami, Hasan ibn... Hasan ibn Abd al-Hasan al-Daylami is the author. That is, he is among the sources of Allamah Majlisi. You can understand how great a personality he must be, right? He has written in his book *Irshad al-Qulub*, he has narrated this hadith: "There are three people whom the fire of Hell cannot touch." The Prophet says this as a guarantee, the Prophet is giving a guarantee. Who are those people? 
+And there are three individuals whom the Fire will not touch. The Prophet is giving a guarantee, brother. Look, we are not saying this, we are quoting a hadith. It is a hadith from *Irshad al-Qulub*. We have also given the reference. The late Daylami—the author's name is Daylami, Hasan ibn... Hasan ibn Abd al-Hasan al-Daylami is the author. That is, he is among the sources of Allamah Majlisi. You can understand how great a personality he must be, right? He has written in his book *Irshad al-Qulub*, he has narrated this hadith: "There are three people whom the fire of Hell cannot touch." The Prophet says this as a guarantee, the Prophet is giving a guarantee. Who are those people?
 
 First of all, first of all, "The woman who is obedient to her husband" (المراۃُ المطيعۃُ لزوجہا)—the woman who obeys her husband. Now, nowadays you see what the situation is, divorce over small matters, divorce, look all around you, divorce here, divorce there, divorce here, divorce there. Now one is even afraid to speak. Previously in gatherings, we used to speak openly, but now we are afraid of that too. Because people come forward and say, "You were lecturing us," oh...
 
@@ -579,33 +579,33 @@ Ya Husayn, Ya Husayn, Ya Husayn, Ya Husayn, Ya Husayn, Ya Husayn, Ya Husayn, Ya 
 ## Conclusion and Key Takeaways
 
 - The Quranic verse commands believers to compete with one another in performing good deeds:
-  فاستبقوا الخیرات
-  > Reference:
+ فاستبقوا الخیرات
+ > Reference:
 
-- It is a fundamental principle of Imamate that the Imams cannot be compared to anyone else, as stated by the Imam: [political commentary omitted], meaning they have no competitors among the people, and terms like "the Husayn of our time" should not be used.
+- It is a fundamental principle of Imamate that the Imams cannot be compared to anyone else, as stated by the Imam: ... meaning they have no competitors among the people, and terms like "the Husayn of our time" should not be used.
 
 - Prophet Muhammad (صلى الله عليه وآله وسلم) stated that anyone who wishes to look at the person on Earth who is most beloved to the inhabitants of the heavens should look at Imam Husayn (عليه السلام):
-  من احب ان ینظر الی احب اہل الارض الی اہل السماء فلینظر الی الحسین
-  > Reference:
+ من احب ان ینظر الی احب اہل الارض الی اہل السماء فلینظر الی الحسین
+ > Reference:
 
 - According to Islamic narrations, Allah created Paradise and the Houris from the sacred light of Imam Husayn (عليه السلام).
 
 - In *Al-Kafi*, Imam Muhammad al-Baqir (عليه السلام) explains that the "Light" mentioned in the Quranic verse refers to the Imams from the family of Prophet Muhammad (صلى الله عليه وآله وسلم) until the Day of Judgment:
-  فَآمِنُوا بِاللَّهِ وَرَسُولِهِ وَالنُّورِ الَّذِي أَنزَلْنَا
-  > Reference:
-  النور و اللہ الأئمة من آل محمد علیہم السلام إلى يوم القيامة
-  > Reference:
+ فَآمِنُوا بِاللَّهِ وَرَسُولِهِ وَالنُّورِ الَّذِي أَنزَلْنَا
+ > Reference:
+ النور و اللہ الأئمة من آل محمد علیہم السلام إلى يوم القيامة
+ > Reference:
 
 - Scholar Mir Hamid Husayn al-Hindi dedicated an entire volume of *Abaqat al-Anwar* to the "Hadith of Light" (Hadith al-Nur), providing over 100 non-Shia references to prove its authenticity and expose the fabrications created in Syria by those hostile to the Ahl al-Bayt.
 
 - Abu Khalid al-Kabli, a prominent companion (hawari) of Imam Zayn al-Abidin (عليه السلام) and Imam Muhammad al-Baqir (عليه السلام), originally from Kabul, recognized the true Imamate of Imam Zayn al-Abidin (عليه السلام) when the Imam addressed him by his secret name, Kankar.
 
 - The light of the Imam in the heart of a believer is brighter than the shining sun during the day, and it is through the Ahl al-Bayt (عليه السلام) that the hearts of believers are illuminated:
-  لَنُورُ الامام فی قلوبِ المؤمنین، انوارِ، اہ، انوارِ من الشمس المضیئة بالنھار
-  > Reference:
+ لَنُورُ الامام فی قلوبِ المؤمنین، انوارِ، اہ، انوارِ من الشمس المضیئة بالنھار
+ > Reference:
 
 - To receive this divine light, a servant's heart must be purified by Allah, which only happens when they completely submit to the Ahl al-Bayt (عليه السلام) and harbor no love for their enemies:
-  لَا یُحِبُّنا عَبدٌ و یَتَوَلانا حتی یُطَہِّرَ اللہُ قَلبَہ
-  > Reference:
+ لَا یُحِبُّنا عَبدٌ و یَتَوَلانا حتی یُطَہِّرَ اللہُ قَلبَہ
+ > Reference:
 
 - Complete submission to the Ahl al-Bayt (عليه السلام) protects a believer from the severe accounting of the Day of Judgment and grants them safety from the Great Terror (الفضاء الاکبر).

@@ -2,10 +2,10 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi  
-**Venue:** Yari Road (Tanveer Devji)  
-**Date:** June 21, 2026 | 5th Moharram 1447 AH  
-**Series:** Lecture 5 - Moharram 2026  
+**Speaker:** Dr. Shabeeb Rizvi
+**Venue:** Yari Road (Tanveer Devji)
+**Date:** June 21, 2026 | 5th Moharram 1447 AH
+**Series:** Lecture 5 - Moharram 2026
 
 ---
 
@@ -13,20 +13,20 @@
 
 - [The Value of Tears for the Ahl al-Bayt](#the-value-of-tears-for-the-ahl-al-bayt)
 - [The Prophet's Five Advices](#the-prophets-five-advices)
-  - [Independence and the Danger of Greed](#independence-and-the-danger-of-greed)
-  - [Praying the Farewell Prayer](#praying-the-farewell-prayer)
-  - [Prayer as a Shield Against Sin](#prayer-as-a-shield-against-sin)
-  - [Humility and Devotion in Prayer](#humility-and-devotion-in-prayer)
-  - [Avoiding Deeds That Require Apology](#avoiding-deeds-that-require-apology)
-  - [Abandoning Sin is Easier Than Repentance](#abandoning-sin-is-easier-than-repentance)
-  - [The Consequence of Betrayal](#the-consequence-of-betrayal)
+ - [Independence and the Danger of Greed](#independence-and-the-danger-of-greed)
+ - [Praying the Farewell Prayer](#praying-the-farewell-prayer)
+ - [Prayer as a Shield Against Sin](#prayer-as-a-shield-against-sin)
+ - [Humility and Devotion in Prayer](#humility-and-devotion-in-prayer)
+ - [Avoiding Deeds That Require Apology](#avoiding-deeds-that-require-apology)
+ - [Abandoning Sin is Easier Than Repentance](#abandoning-sin-is-easier-than-repentance)
+ - [The Consequence of Betrayal](#the-consequence-of-betrayal)
 - [The Difficulty of Repentance vs. Avoiding Sin](#the-difficulty-of-repentance-vs-avoiding-sin)
-  - [The Long-Term Consequences of a Moment's Desire](#the-long-term-consequences-of-a-moments-desire)
+ - [The Long-Term Consequences of a Moment's Desire](#the-long-term-consequences-of-a-moments-desire)
 - [Weighing Our Actions Like Gold](#weighing-our-actions-like-gold)
 - [Death Exposes the Reality of the World](#death-exposes-the-reality-of-the-world)
 - [Quranic Warnings Against Sins](#quranic-warnings-against-sins)
 - [Repentance and Infallibility](#repentance-and-infallibility)
-  - [Sins Against Allah and Sins Against People](#sins-against-allah-and-sins-against-people)
+ - [Sins Against Allah and Sins Against People](#sins-against-allah-and-sins-against-people)
 - [The Intoxication of Sin](#the-intoxication-of-sin)
 - [Deviation from Wilayah and the State of Shi'ism Today](#deviation-from-wilayah-and-the-state-of-shiism-today)
 - [The Reappearance of the Imam of the Time](#the-reappearance-of-the-imam-of-the-time)
@@ -35,8 +35,8 @@
 - [The Virtue of Making a Believer Happy](#the-virtue-of-making-a-believer-happy)
 - [The Suffering of the Ahl al-Bayt](#the-suffering-of-the-ahl-al-bayt)
 - [The Sacrifice of Aun and Muhammad](#the-sacrifice-of-aun-and-muhammad)
-  - [Zainab's Advice to Her Sons](#zainabs-advice-to-her-sons)
-  - [The Martyrdom of the Sons of Ja'far](#the-martyrdom-of-the-sons-of-jafar)
+ - [Zainab's Advice to Her Sons](#zainabs-advice-to-her-sons)
+ - [The Martyrdom of the Sons of Ja'far](#the-martyrdom-of-the-sons-of-jafar)
 - [Zainab's Return to Medina](#zainabs-return-to-medina)
 - [Supplications](#supplications)
 
@@ -133,7 +133,7 @@ First, despair of whatever is in the hands of people. That is, never look at wha
 
 Second, and this is the present wealth. The Prophet (صلى الله عليه وآله وسلم) said this is the present wealth. That is, true wealth is that a person is not dependent on anyone and does not look back at anyone.
 
-And, in another narration, it is found: 
+And, in another narration, it is found:
 واستغن عن الناس تکن۔۔۔
 > Reference:
 
@@ -257,7 +257,7 @@ That is, leaving the mistake, leaving the sin, leaving the error is easier. It i
 
 ### The Long-Term Consequences of a Moment's Desire
 
-Then the Mawla (عليه السلام) says an amazing sentence. This is a lesson of warning for us. Look, look at the teachings of the Ahl al-Bayt (عليهم السلام). 
+Then the Mawla (عليه السلام) says an amazing sentence. This is a lesson of warning for us. Look, look at the teachings of the Ahl al-Bayt (عليهم السلام).
 
 "وكم من شهوة ساعة"
 
@@ -266,9 +266,9 @@ Sometimes a moment's desire, meaning when Satan completely takes over, takes the
 "أورثت حزنا طويلا"
 > Reference:
 
-leaves them grieving for a long time. A brief moment of desire. A desire of a few minutes. That is, in Arabic, when 'sa'ah' (ساعة) is used, 'sa'ah' does not mean exactly one minute, two minutes, or one hour. It means a portion of time. Now, that could be two minutes, five minutes, or an hour, depending on the context in which it is used. So, a short-lived desire. And we see its example in this world. Do you see the example in the world or not? 
+leaves them grieving for a long time. A brief moment of desire. A desire of a few minutes. That is, in Arabic, when 'sa'ah' (ساعة) is used, 'sa'ah' does not mean exactly one minute, two minutes, or one hour. It means a portion of time. Now, that could be two minutes, five minutes, or an hour, depending on the context in which it is used. So, a short-lived desire. And we see its example in this world. Do you see the example in the world or not?
 
-Look, who was that champion of car racing who is still in a coma today, who has become a vegetable? Schumacher. He was skiing. He was skiing. And in skiing, just one second, just one second, he fell while skiing. And there was a sharp edge of ice that pierced his spine, a vein, which directly affected his brain. And this happened, I don't know how many years ago. I don't remember how many years it has been. But it has been at least 10 years. At least 7-8 years ago, I read this in a Majlis. After that, I am repeating it for the second or third time. So, it has been at least 7-8 years, maybe 10 years. You can check and see for yourself. Since then, he has been a vegetable. A moment—how long was that moment of the accident? Not even a second. How long did its effect last? Many years. 
+Look, who was that champion of car racing who is still in a coma today, who has become a vegetable? Schumacher. He was skiing. He was skiing. And in skiing, just one second, just one second, he fell while skiing. And there was a sharp edge of ice that pierced his spine, a vein, which directly affected his brain. And this happened, I don't know how many years ago. I don't remember how many years it has been. But it has been at least 10 years. At least 7-8 years ago, I read this in a Majlis. After that, I am repeating it for the second or third time. So, it has been at least 7-8 years, maybe 10 years. You can check and see for yourself. Since then, he has been a vegetable. A moment—how long was that moment of the accident? Not even a second. How long did its effect last? Many years.
 
 In the same way, sin is. A five-minute or two-minute sin, and a person regrets it for their entire life. Not just life. Life, meaning even after dying, they regret it in Barzakh. Because what they left behind in the world is causing them so much pain, so much torture, that there is no limit or end to it. In Barzakh, they are receiving its punishment.
 
@@ -276,7 +276,7 @@ In the same way, sin is. A five-minute or two-minute sin, and a person regrets i
 
 Think about it, meaning a person should think ten times before doing any action. They should think a lot: "Brother, what are we doing?" Every single action, meaning, in other words, in simple terms, make your every single action very valuable. Valuable means, before doing it, whether it is through the tongue, through thought, or through hands and feet. Weigh it heavily, even your thoughts. Weigh it, measure where this thing will lead. Think. What will be its effect?
 
-Look, the goldsmith, you have seen a goldsmith, right? When a goldsmith weighs, if you observe, he places such tiny weights and then looks. Because gold is a valuable thing. Right? But on the other hand, if you go to buy wheat, what does he do? He puts a one-kilogram weight, then throws it in, places it, and even gives you a little extra to make you happy. He says, "Here, a handful more." You are happy, no problem. But a goldsmith is not like that. Because wheat does not have that value. Wheat does not have that value. But gold is very valuable. That is why a goldsmith weighs extremely minutely. He weighs with great precision. It's not like he would say, "Let me throw in a little more," if he were a goldsmith. Otherwise, his shop would close down. 
+Look, the goldsmith, you have seen a goldsmith, right? When a goldsmith weighs, if you observe, he places such tiny weights and then looks. Because gold is a valuable thing. Right? But on the other hand, if you go to buy wheat, what does he do? He puts a one-kilogram weight, then throws it in, places it, and even gives you a little extra to make you happy. He says, "Here, a handful more." You are happy, no problem. But a goldsmith is not like that. Because wheat does not have that value. Wheat does not have that value. But gold is very valuable. That is why a goldsmith weighs extremely minutely. He weighs with great precision. It's not like he would say, "Let me throw in a little more," if he were a goldsmith. Otherwise, his shop would close down.
 
 Our case is exactly the same. If we keep performing actions like this, then on the Day of Judgment, our shop will close down. Nothing will work. Because, of course, Wilayah will save us, Inshallah it will surely save everyone, we have full hope, but the Ahl al-Bayt (عليهم السلام) themselves have said that if someone commits too many sins, we expel them from our Wilayah. We expel them from our Wilayah, and they go into the Wilayah of the enemies. Why? Because the Imam (عليه السلام) says:
 
@@ -420,22 +420,22 @@ And wish for your brother what you wish for yourself. Wish for your brother—me
 and this, علی المومنین. Meaning, it is recommended (mustahabb), it is recommended to bring joy to the believers. It is recommended. Always—meaning, bringing joy does not mean just giving money, no, no. Meaning, bring joy through words, or whatever else. In whatever way you bring him joy, in which his happiness lies. Only not in forbidden things! Yes, a believer might come and say, "Buy me a movie ticket." (Laughs) So I said, "Yes, look, the believer was asking, so..." Yes, no, people have done this, we are telling you. Like, "Yes, give me Sahm-e-Sadat (portion of the Khums for Sayyids)." For what? "To become an air hostess." Oh brother, that job is forbidden! That job of an air hostess is forbidden for women, and for men if it involves serving alcohol, it is forbidden. So not that, "You give Sahm-e-Sadat for that..." Oh brother, giving it for a forbidden act is not permissible. Then, in any case, they went to someone who performed an Istikhara, and it came out perfectly fine! (Laughs) "Give it." We are not telling a joke, we are speaking knowing that Allah is present and watching. This happened in Mumbai itself. First, they came there and pleaded with us a lot, but we said no. You can ask for something else, like if the girl wants to do a computer course, this, that, whatever, education is fine. But not for this forbidden work.
 
 وادخال السرور فی قلوب المومنین یا علی المومنین وتحریم ادخال الکرب علیہ
-this is a very dangerous thing. [political commentary omitted] And to cause distress to a believer is forbidden. To hurt his heart is forbidden. To cause distress is forbidden. To hurt his heart is forbidden. "Tahrim" means forbidden. Just one hadith, because time is up, let's quickly read the hadith and then move on to the section on rulings (Masa'il).
+this is a very dangerous thing. ... And to cause distress to a believer is forbidden. To hurt his heart is forbidden. To cause distress is forbidden. To hurt his heart is forbidden. "Tahrim" means forbidden. Just one hadith, because time is up, let's quickly read the hadith and then move on to the section on rulings (Masa'il).
 
 ## The Status of Jabir ibn Yazid al-Ju'fi
 
-Look, this narration is quoted by Sheikh Hurr al-Amili in Wasa'il al-Shiah from Jabir bin Yazid al-Ju'fi, may Allah be pleased with him. You know what the status, what the position of Jabir ibn Yazid al-Ju'fi is. He is the Salman of Imam al-Baqir (عليه السلام)—he is Salman, indeed Salman. The Imam gave him 90,000 hadiths and said, "Jabir, this is only for you." How many? 90,000. Now, for those who do not understand, just to put it into perspective, the entire Bihar al-Anwar contains 93,000 hadiths. The entire Bihar al-Anwar, right? It has 93,000. This means the Imam gave a volume equivalent to Bihar al-Anwar to Jabir and said, "This is only for you." 
+Look, this narration is quoted by Sheikh Hurr al-Amili in Wasa'il al-Shiah from Jabir bin Yazid al-Ju'fi, may Allah be pleased with him. You know what the status, what the position of Jabir ibn Yazid al-Ju'fi is. He is the Salman of Imam al-Baqir (عليه السلام)—he is Salman, indeed Salman. The Imam gave him 90,000 hadiths and said, "Jabir, this is only for you." How many? 90,000. Now, for those who do not understand, just to put it into perspective, the entire Bihar al-Anwar contains 93,000 hadiths. The entire Bihar al-Anwar, right? It has 93,000. This means the Imam gave a volume equivalent to Bihar al-Anwar to Jabir and said, "This is only for you."
 
-Now, people ask here, if this was only for Jabir, what is the benefit of that? It means not every hadith is meant to be spoken. Some hadiths are meant to elevate someone's status. And these elevated Jabir's status so high that no one could even imagine. Remember this Jabir bin Yazid al-Ju'fi, may Allah be pleased with him, and remember his status. I am saying this because there was a seminar on Islamic unity (Ittihad bayn al-Muslimeen) in the Islamic Center, and many of our prominent figures were also present there. In that seminar, a Sunni stood up and started speaking ill of Jabir bin Yazid al-Ju'fi. He said, "Many of the Imam's companions were good, but this Jabir was very wicked. Many hadiths against our scholars have been narrated from him." 
+Now, people ask here, if this was only for Jabir, what is the benefit of that? It means not every hadith is meant to be spoken. Some hadiths are meant to elevate someone's status. And these elevated Jabir's status so high that no one could even imagine. Remember this Jabir bin Yazid al-Ju'fi, may Allah be pleased with him, and remember his status. I am saying this because there was a seminar on Islamic unity (Ittihad bayn al-Muslimeen) in the Islamic Center, and many of our prominent figures were also present there. In that seminar, a Sunni stood up and started speaking ill of Jabir bin Yazid al-Ju'fi. He said, "Many of the Imam's companions were good, but this Jabir was very wicked. Many hadiths against our scholars have been narrated from him."
 
-And all of our people sitting there were listening silently with their heads bowed; not a single word was spoken. No one said, "Brother, what nonsense are you talking? If we also start speaking about your companions in this manner, we will expose everything." Then you would see if he had the courage to say anything. But not a single word was spoken. In fact, they went and shook hands with them afterwards. With those very wretched people. And think about it, this is what they call unity! 
+And all of our people sitting there were listening silently with their heads bowed; not a single word was spoken. No one said, "Brother, what nonsense are you talking? If we also start speaking about your companions in this manner, we will expose everything." Then you would see if he had the courage to say anything. But not a single word was spoken. In fact, they went and shook hands with them afterwards. With those very wretched people. And think about it, this is what they call unity!
 
 Now, this Jabir narrates from Imam al-Baqir (عليه السلام). (اللهم صل على محمد و آل محمد وعجل فرجهم) He says that Imam al-Baqir (عليه السلام) said:
 
 تبسم الرجل فی وجہی اخیہ حسناً۔
 > Reference:
 
-"Just looking at your believer brother and smiling is a good deed." This smiling, this [political commentary omitted] yes, meaning not on the day of Ashura. Right? So there is a condition for it, for example, on other days, look at a believer and smile. Do not become the Angel of Death (Malak al-Mawt). When the Angel of Death seizes a soul, people get terrified just by looking at him. Prophet Ibrahim (عليه السلام) said, "Just looking at you is punishment enough." Similarly, some people make such a face that just looking at them is enough of a punishment for a believer.
+"Just looking at your believer brother and smiling is a good deed." This smiling, this ... yes, meaning not on the day of Ashura. Right? So there is a condition for it, for example, on other days, look at a believer and smile. Do not become the Angel of Death (Malak al-Mawt). When the Angel of Death seizes a soul, people get terrified just by looking at him. Prophet Ibrahim (عليه السلام) said, "Just looking at you is punishment enough." Similarly, some people make such a face that just looking at them is enough of a punishment for a believer.
 
 تبسم الرجل فی وجہی اخیہ حسناً۔ و صرفہ القضاء عنہ حسنا۔
 > Reference:
@@ -530,4 +530,4 @@ explaining that if someone sheds even a tiny tear the size of a fly's wing when 
 ترك الخطيئة أيسر من طلب التوبة
 > Reference:
 and warned that a brief moment of worldly desire can result in long-lasting grief.
-- It is highly recommended to bring joy to fellow believers and strictly forbidden to cause them grief, as Imam al-Baqir (عليه السلام) stated that smiling in the face of a brother is a good deed [political commentary omitted] and that there is no worship more beloved to Allah than bringing joy to believers.
+- It is highly recommended to bring joy to fellow believers and strictly forbidden to cause them grief, as Imam al-Baqir (عليه السلام) stated that smiling in the face of a brother is a good deed ... and that there is no worship more beloved to Allah than bringing joy to believers.

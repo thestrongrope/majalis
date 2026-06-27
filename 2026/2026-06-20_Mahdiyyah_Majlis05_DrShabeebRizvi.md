@@ -2,11 +2,11 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi  
-**Venue:** Mahdiyyah, Bandra West  
-**Date:** June 20, 2026 | 4th Moharram 1447 AH  
-**Series:** Lecture 5 - Moharram 2026  
-**YouTube:** [Majlis 5 | Mukhtasar Tareekh-e-Azadaari](https://www.youtube.com/watch?v=j-PQ5bvlvTw)  
+**Speaker:** Dr. Shabeeb Rizvi
+**Venue:** Mahdiyyah, Bandra West
+**Date:** June 20, 2026 | 4th Moharram 1447 AH
+**Series:** Lecture 5 - Moharram 2026
+**YouTube:** [Majlis 5 | Mukhtasar Tareekh-e-Azadaari](https://www.youtube.com/watch?v=j-PQ5bvlvTw)
 
 ---
 
@@ -14,36 +14,36 @@
 
 - [Excelling in Good Deeds](#excelling-in-good-deeds)
 - [Maytham al-Tammar and the Companions of Amir al-Mu'minin](#maytham-al-tammar-and-the-companions-of-amir-al-muminin)
-  - [Sheikh Saduq and the Book 'Ilal al-Shara'i'](#sheikh-saduq-and-the-book-ilal-al-sharai)
+ - [Sheikh Saduq and the Book 'Ilal al-Shara'i'](#sheikh-saduq-and-the-book-ilal-al-sharai)
 - [The Prophecy of Maytham al-Tammar](#the-prophecy-of-maytham-al-tammar)
-  - [Fabricated Narrations Regarding Ashura](#fabricated-narrations-regarding-ashura)
+ - [Fabricated Narrations Regarding Ashura](#fabricated-narrations-regarding-ashura)
 - [The Unparalleled Status of Imam Hussain (عليه السلام)](#the-unparalleled-status-of-imam-hussain-عليه-السلام)
-  - [The True Identity of Shia Islam](#the-true-identity-of-shia-islam)
+ - [The True Identity of Shia Islam](#the-true-identity-of-shia-islam)
 - [The Prophecy of Jabalah and the Red Sky](#the-prophecy-of-jabalah-and-the-red-sky)
 - [The Majlis as a Court of Inquiry](#the-majlis-as-a-court-of-inquiry)
-  - [The Fabrication of Hadiths by the Umayyads](#the-fabrication-of-hadiths-by-the-umayyads)
+ - [The Fabrication of Hadiths by the Umayyads](#the-fabrication-of-hadiths-by-the-umayyads)
 - [Fabricated Hadiths and the Origin of Ashura Fasting](#fabricated-hadiths-and-the-origin-of-ashura-fasting)
 - [The Historical Struggle Between Truth and Falsehood](#the-historical-struggle-between-truth-and-falsehood)
-  - [The Reign of Yazid and the Umayyad Dynasty](#the-reign-of-yazid-and-the-umayyad-dynasty)
-  - [Oppression Under the Abbasid Dynasty](#oppression-under-the-abbasid-dynasty)
+ - [The Reign of Yazid and the Umayyad Dynasty](#the-reign-of-yazid-and-the-umayyad-dynasty)
+ - [Oppression Under the Abbasid Dynasty](#oppression-under-the-abbasid-dynasty)
 - [The Revival of Azadari Under the Buyids](#the-revival-of-azadari-under-the-buyids)
-  - [Historical Evidence from Al-Maqrizi](#historical-evidence-from-al-maqrizi)
+ - [Historical Evidence from Al-Maqrizi](#historical-evidence-from-al-maqrizi)
 - [The Rise and Fall of Azadari in North Africa and the Seljuk Era](#the-rise-and-fall-of-azadari-in-north-africa-and-the-seljuk-era)
-  - [The Fall of Aleppo and the Massacre of Shias](#the-fall-of-aleppo-and-the-massacre-of-shias)
+ - [The Fall of Aleppo and the Massacre of Shias](#the-fall-of-aleppo-and-the-massacre-of-shias)
 - [The Definition of Nobility (Al-Majd)](#the-definition-of-nobility-al-majd)
 - [Bearing Debts and Building Noble Character](#bearing-debts-and-building-noble-character)
 - [Amir al-Mu'minin and the Apparent Caliphate](#amir-al-muminin-and-the-apparent-caliphate)
-  - [The Struggle Over the Public Treasury](#the-struggle-over-the-public-treasury)
+ - [The Struggle Over the Public Treasury](#the-struggle-over-the-public-treasury)
 - [The Prohibition of Extravagance and False Praise](#the-prohibition-of-extravagance-and-false-praise)
-  - [The Rightful Uses of Wealth](#the-rightful-uses-of-wealth)
+ - [The Rightful Uses of Wealth](#the-rightful-uses-of-wealth)
 - [Three Noble Moral Traits](#three-noble-moral-traits)
 - [Hastening Toward Four Things Before Four Others](#hastening-toward-four-things-before-four-others)
-  - [Do Not Rely on Others for Your Deeds](#do-not-rely-on-others-for-your-deeds)
+ - [Do Not Rely on Others for Your Deeds](#do-not-rely-on-others-for-your-deeds)
 - [The Sons of Ja'far ibn Abi Talib](#the-sons-of-jafar-ibn-abi-talib)
 - [The Sacrifice of Lady Zaynab's Sons](#the-sacrifice-of-lady-zaynabs-sons)
-  - [Preparing for the Battlefield](#preparing-for-the-battlefield)
-  - [Martyrdom on the Battlefield](#martyrdom-on-the-battlefield)
-  - [The Return to Medina](#the-return-to-medina)
+ - [Preparing for the Battlefield](#preparing-for-the-battlefield)
+ - [Martyrdom on the Battlefield](#martyrdom-on-the-battlefield)
+ - [The Return to Medina](#the-return-to-medina)
 - [Concluding Supplications](#concluding-supplications)
 
 ## Summary
@@ -60,9 +60,9 @@ The speaker explains that the Ahl al-Bayt (عليهم السلام) are the ulti
 
 > **Reference:** [Al-Kaafi](https://hadith.ahlebaytrepo.com/01348/h/119033) (Shaikh Kulaini (a.r.), d. 329 AH), vol. 8, p. 242–243, H. 15132
 
-Imam Hussain (عليه السلام) rose against Yazid because he saw that Islam was on the verge of being completely destroyed. [political commentary omitted] Yazid's character is well-documented in history. [political commentary omitted] To understand the depth of this tragedy, the speaker highlights a narration from Sheikh Saduq's *Ilal al-Sharai'*, where Jabalah al-Makkiyah narrates from Maytham al-Tammar. Maytham, along with Rashid al-Hijri and Habib ibn Muzahir (عليهم السلام), were close confidants of Amir al-Mu'minin (عليه السلام) who were taught the knowledge of future tribulations and deaths. Maytham foretold that the Ummah would martyr the son of the Messenger of Allah (صلى الله عليه وآله وسلم) on the 10th of Muharram and celebrate it as a day of blessing, while the entire creation, including the heavens, earth, wild beasts, and the believers among jinn and humans, would weep for him.
+Imam Hussain (عليه السلام) rose against Yazid because he saw that Islam was on the verge of being completely destroyed. ... Yazid's character is well-documented in history. ... To understand the depth of this tragedy, the speaker highlights a narration from Sheikh Saduq's *Ilal al-Sharai'*, where Jabalah al-Makkiyah narrates from Maytham al-Tammar. Maytham, along with Rashid al-Hijri and Habib ibn Muzahir (عليهم السلام), were close confidants of Amir al-Mu'minin (عليه السلام) who were taught the knowledge of future tribulations and deaths. Maytham foretold that the Ummah would martyr the son of the Messenger of Allah (صلى الله عليه وآله وسلم) on the 10th of Muharram and celebrate it as a day of blessing, while the entire creation, including the heavens, earth, wild beasts, and the believers among jinn and humans, would weep for him.
 
-Maytham also revealed that the enemies of the Ahl al-Bayt (عليهم السلام) would fabricate traditions to justify celebrating Ashura, falsely claiming it was the day Allah accepted the repentance of Adam and Dawud, saved Hazrat Yunus (عليه السلام) from the whale, and anchored Noah's ark on Mount Judi. In reality, these events occurred on the 18th of Dhu al-Hijjah (Ghadir), and the fabrications were designed to divert Muslims' joy from Ghadir to Ashura. The speaker emphasizes that the true identity of a Shia is not merely reciting the virtues of the Ahl al-Bayt (عليهم السلام), which even non-Shias do, but practicing *tabarra* (disassociation from their enemies). The mourning assemblies (*majalis*) serve as a "court of inquiry" established by Janab-e-Zainab to investigate the tragedy of Karbala. [political commentary omitted] This inquiry leads back to the question of who appointed Yazid's father, [political commentary omitted] ultimately tracing the root of the deviation back to Saqifah. [political commentary omitted] True love for Ghadir cannot coexist with Saqifah, as stated in the Quranic verse:
+Maytham also revealed that the enemies of the Ahl al-Bayt (عليهم السلام) would fabricate traditions to justify celebrating Ashura, falsely claiming it was the day Allah accepted the repentance of Adam and Dawud, saved Hazrat Yunus (عليه السلام) from the whale, and anchored Noah's ark on Mount Judi. In reality, these events occurred on the 18th of Dhu al-Hijjah (Ghadir), and the fabrications were designed to divert Muslims' joy from Ghadir to Ashura. The speaker emphasizes that the true identity of a Shia is not merely reciting the virtues of the Ahl al-Bayt (عليهم السلام), which even non-Shias do, but practicing *tabarra* (disassociation from their enemies). The mourning assemblies (*majalis*) serve as a "court of inquiry" established by Janab-e-Zainab to investigate the tragedy of Karbala. ... This inquiry leads back to the question of who appointed Yazid's father, ... ultimately tracing the root of the deviation back to Saqifah. ... True love for Ghadir cannot coexist with Saqifah, as stated in the Quranic verse:
 
 ما جَعَلَ اللَّهُ لِرَجُلٍ مِنْ قَلْبَيْنِ فِي جَوْفِهِ
 
@@ -109,11 +109,11 @@ It is found in the narration:
 
 We are the root of all goodness. Source of every goodness. Whichever goodness exists, the source of all of it is the Ahl al-Bayt (عليهم السلام).
 
-[political commentary omitted]
+...
 
-And I had submitted to you that Imam Hussain (عليه السلام) rose, staged an uprising against Yazid, and the reason for this was that he saw that the religion was being completely annihilated, religion was ending, and it was imminent that nothing by the name of religion, by the name of Islam, would remain. [political commentary omitted] 
+And I had submitted to you that Imam Hussain (عليه السلام) rose, staged an uprising against Yazid, and the reason for this was that he saw that the religion was being completely annihilated, religion was ending, and it was imminent that nothing by the name of religion, by the name of Islam, would remain. ...
 
-And this man was such that, in any case, whatever you know about him, everything has been described in history. [political commentary omitted]
+And this man was such that, in any case, whatever you know about him, everything has been described in history. ...
 
 ## Maytham al-Tammar and the Companions of Amir al-Mu'minin
 
@@ -163,7 +163,7 @@ That is, the entire universe will weep over Hussain. The entire universe will cr
 
 Even the wild beasts in the wildernesses will weep. The fish in the sea will cry. The birds in the sky will weep, and the sun will weep, and the moon will weep, the stars will weep, the sky will cry, the earth will cry, the believers among the jinn and mankind will cry. The believers among humans and jinns will weep. That is, the Master has placed the condition of believers here. Because, obviously, why would the hypocrites and the enemies of religion weep? For them, this is a day of blessing. That is, if you want to find out who is a true believer and who is an enemy of religion, then look at who celebrates and who mourns on the day of Ashura. The one who mourns the martyrdom of the son of the Messenger of Allah (صلى الله عليه وآله وسلم) is a believer, a true Muslim. And the one who celebrates on that day, understand that he is among the enemies of God.
 
-Upon the killers and enemies of Hussain, [political commentary omitted] and Ridwan. Ridwan, who is the keeper of Paradise, will weep. Malik, who is the keeper of Hell, will weep. And the bearers of the Throne (*Hamalat al-Arsh*), who carry the Throne, will weep. The sky will weep blood. And dust will fall from the sky on that day. All of this will happen on the day of Ashura. Amir al-Mu'minin made the prophecy. He told Maytham, and Maytham is telling Jabilah.
+Upon the killers and enemies of Hussain, ... and Ridwan. Ridwan, who is the keeper of Paradise, will weep. Malik, who is the keeper of Hell, will weep. And the bearers of the Throne (*Hamalat al-Arsh*), who carry the Throne, will weep. The sky will weep blood. And dust will fall from the sky on that day. All of this will happen on the day of Ashura. Amir al-Mu'minin made the prophecy. He told Maytham, and Maytham is telling Jabilah.
 
 After that, Maytham says:
 وَجَبَتْ لَعْنَةُ اللَّهِ عَلَى قَتَلَةِ الْحُسَيْنِ
@@ -198,7 +198,7 @@ After that, they say that this was the day on which Allah parted the River Nile 
 
 ## The Unparalleled Status of Imam Hussain (عليه السلام)
 
-O Jabalah, for Hussain and his companions, there is such a status and rank in the heavens that nothing in this world can compare to it. Do not compare Hussain with anyone. Hussain cannot be compared. Do not compare him to anything. Some people foolishly make absurd statements and compare Muharram to other things. Never do this. Hussain cannot be compared to anything. And some people say, "What was the purpose, and what was the purpose of his martyrdom, and we need to look at that." You will see. You fulfill the purpose. And what is it? "They looked the oppressor in the eye." Meaning, these kinds of absurd talks, and you see who these individuals are who talk like this, let me tell you that too. It is very simple, very simple. You see, these are the individuals who have no substance. So they go and discuss current affairs on the pulpit. [political commentary omitted] Because they have neither the knowledge of the Quran, nor the knowledge of Hadith, nor are they familiar with Tafsir, nor are they familiar with anything. They are not familiar with supplications. They are not familiar with anything. They have only been taught a few political points, they have been made to read them, and they keep repeating them on the pulpit. And anyway, our nation has always been very simple, as you know, and even today it is very simple. Recite a Salawat.
+O Jabalah, for Hussain and his companions, there is such a status and rank in the heavens that nothing in this world can compare to it. Do not compare Hussain with anyone. Hussain cannot be compared. Do not compare him to anything. Some people foolishly make absurd statements and compare Muharram to other things. Never do this. Hussain cannot be compared to anything. And some people say, "What was the purpose, and what was the purpose of his martyrdom, and we need to look at that." You will see. You fulfill the purpose. And what is it? "They looked the oppressor in the eye." Meaning, these kinds of absurd talks, and you see who these individuals are who talk like this, let me tell you that too. It is very simple, very simple. You see, these are the individuals who have no substance. So they go and discuss current affairs on the pulpit. ... Because they have neither the knowledge of the Quran, nor the knowledge of Hadith, nor are they familiar with Tafsir, nor are they familiar with anything. They are not familiar with supplications. They are not familiar with anything. They have only been taught a few political points, they have been made to read them, and they keep repeating them on the pulpit. And anyway, our nation has always been very simple, as you know, and even today it is very simple. Recite a Salawat.
 
 اللهم صل علی محمد و آل محمد و عجل فرجهم واللعن اعدائهم
 
@@ -258,11 +258,11 @@ Now, why did I choose this Hadith?
 
 To show that it was absolutely clear to the Ahl al-Bayt, completely clear, that the grief of Hussain is a great grief. There are many Hadiths in this regard. But the Umayyads killed him. Now, if an inquiry were to be set up regarding the killing of Hussain—and we have said this many times before—this Majlis-e-Aza is actually a court of inquiry.
 
-And that is exactly what it should be. If this court of inquiry does not do its job, it means justice is not being served. [political commentary omitted] You take your case to court, and if the lawyers and judges there talk about this and that instead of your case, and do not discuss the actual subject, you would say, "Brother, what is happening? I came here with my case." The very first person who brought this case to this court, the very first, was Janab-e-Zaynab. Janab-e-Zaynab was the one who established this court when she delivered her sermon in the courts of Ibn Ziyad and Yazid, establishing this court, this case, and setting up the Majlis-e-Aza. After that, it becomes the responsibility of all of us to ask: Who killed Imam Hussain? Who killed him? Why did they kill him? This is the first question.
+And that is exactly what it should be. If this court of inquiry does not do its job, it means justice is not being served. ... You take your case to court, and if the lawyers and judges there talk about this and that instead of your case, and do not discuss the actual subject, you would say, "Brother, what is happening? I came here with my case." The very first person who brought this case to this court, the very first, was Janab-e-Zaynab. Janab-e-Zaynab was the one who established this court when she delivered her sermon in the courts of Ibn Ziyad and Yazid, establishing this court, this case, and setting up the Majlis-e-Aza. After that, it becomes the responsibility of all of us to ask: Who killed Imam Hussain? Who killed him? Why did they kill him? This is the first question.
 
-Well, everyone has answered this question. Everyone knows who killed him and why he was killed, and Sayyid al-Shuhada himself gave the answer. The second question is: if that man was like that, who made him the caliph? [political commentary omitted] They said, "Well, his father thought that the government should go to his son." So his father made him caliph. Then the third question arises: who made his father? Discuss this, brother! You discuss who made him, how he became caliph. And when you discuss this, you will find that the entire matter leads back to Saqifah.
+Well, everyone has answered this question. Everyone knows who killed him and why he was killed, and Sayyid al-Shuhada himself gave the answer. The second question is: if that man was like that, who made him the caliph? ... They said, "Well, his father thought that the government should go to his son." So his father made him caliph. Then the third question arises: who made his father? Discuss this, brother! You discuss who made him, how he became caliph. And when you discuss this, you will find that the entire matter leads back to Saqifah.
 
-The entire matter leads back to Saqifah; the whole issue is about Saqifah. It is all about Ghadir. [political commentary omitted] As for the verse I presented to you yesterday:
+The entire matter leads back to Saqifah; the whole issue is about Saqifah. It is all about Ghadir. ... As for the verse I presented to you yesterday:
 
 ما جَعَلَ اللَّهُ لِرَجُلٍ مِنْ قَلْبَيْنِ فِي جَوْفِهِ
 
@@ -284,7 +284,7 @@ He would be born with the hatred of Ali, and he would grow up with the hatred of
 
 ## Fabricated Hadiths and the Origin of Ashura Fasting
 
-...has made it. Now, they made it their target to spread this thing across the entire universe, across the entire Islamic world. And that is why they said that this is a day of great joy. On this day, one should fast. Therefore, hadiths were fabricated about the importance of fasting. One should fast; one should fast on the day of Ashura. Hadiths were fabricated about this. Now, all these hadiths that I am presenting to you—analyze them all. If you analyze them, you will find that all their narrators, all the sources, originated from Syria. All of them from there, all the hadiths were fabricated from there. And that is why we have been taught visitations like Ziyarat Ashura, so that Shias recite it regularly and it remains clear to them what the matter is, what the reality is. 
+...has made it. Now, they made it their target to spread this thing across the entire universe, across the entire Islamic world. And that is why they said that this is a day of great joy. On this day, one should fast. Therefore, hadiths were fabricated about the importance of fasting. One should fast; one should fast on the day of Ashura. Hadiths were fabricated about this. Now, all these hadiths that I am presenting to you—analyze them all. If you analyze them, you will find that all their narrators, all the sources, originated from Syria. All of them from there, all the hadiths were fabricated from there. And that is why we have been taught visitations like Ziyarat Ashura, so that Shias recite it regularly and it remains clear to them what the matter is, what the reality is.
 
 What do you recite in Ziyarat Ashura?
 
@@ -298,7 +298,7 @@ O Lord, this is a day which the Umayyads consider a day of blessing.
 
 > **Reference:** [Misbah al-Mutahajjid](https://hadith.ahlebaytrepo.com/01559/h/371304) (Shaikh Tusi (a.r.)), vol. 2, p. 772–777, H. 546
 
-Who are these Umayyads? The Umayyads and the sons of the liver-eater, their offspring. Who is the liver-eater? *Akilah* means the one who eats. *Akbad* means livers. Whose liver did she eat? Well, look at this and ponder over the visitations as well. Who ate the liver? Hind. Whose mother was she? Whose wife was she? Everyone knows. But the Imam did not say *Akilat al-Kabd* [political commentary omitted]. It is not written like that in the visitation; this is a Hadith Qudsi. He did not say *Akilat al-Kabd*—she did not eat only Hamzah's liver. The Imam says *Akbad* (livers), meaning it was her habit to eat the livers of the dead. You can understand what her offspring would be like. These people were from her lineage—those who killed Husayn (عليه السلام), who celebrated on the day of Ashura.
+Who are these Umayyads? The Umayyads and the sons of the liver-eater, their offspring. Who is the liver-eater? *Akilah* means the one who eats. *Akbad* means livers. Whose liver did she eat? Well, look at this and ponder over the visitations as well. Who ate the liver? Hind. Whose mother was she? Whose wife was she? Everyone knows. But the Imam did not say *Akilat al-Kabd* ... It is not written like that in the visitation; this is a Hadith Qudsi. He did not say *Akilat al-Kabd*—she did not eat only Hamzah's liver. The Imam says *Akbad* (livers), meaning it was her habit to eat the livers of the dead. You can understand what her offspring would be like. These people were from her lineage—those who killed Husayn (عليه السلام), who celebrated on the day of Ashura.
 
 وابن آكلة الأكباد اللعين ابن اللعين على لسان نبيك (صلى الله عليه وآله)
 
@@ -336,7 +336,7 @@ This is the day when the family of Ziyad rejoiced. The family of Ziyad celebrate
 
 وآل مروان
 
-The family of Marwan. Meaning Marwan ibn al-Hakam, ibn Abd al-Malik ibn Marwan—these are the individuals [political commentary omitted] of history. The pages of history will turn before you, the pages of history will turn so that you can understand quickly. Look at the pages of history; I will present them to you very fast so we can get to the main topic. But it is necessary that our children understand these things. So why did they celebrate? *Farhat*. *Farhat* means to celebrate, to rejoice.
+The family of Marwan. Meaning Marwan ibn al-Hakam, ibn Abd al-Malik ibn Marwan—these are the individuals ... of history. The pages of history will turn before you, the pages of history will turn so that you can understand quickly. Look at the pages of history; I will present them to you very fast so we can get to the main topic. But it is necessary that our children understand these things. So why did they celebrate? *Farhat*. *Farhat* means to celebrate, to rejoice.
 
 بقتلهم الحسين
 
@@ -352,7 +352,7 @@ O Lord, send Your curse and punishment upon them manifold. Manifold.
 
 ## The Historical Struggle Between Truth and Falsehood
 
-And obviously, in other hadiths, in prayers, in many places, as I have mentioned, this is Shia culture. This is Shia culture. Wherever you look, someone might say, "No, no, he is very good, they are all very good. What is done is done, forget the past." No, no, how can we forget the past? When Allah has not forgotten the past, should we forget it? [political commentary omitted] Allah repeats the story of Iblis repeatedly in the Quran. Should we tell Allah, "Why are You talking about the past? Let's talk about something fresh. Let's have fresh talks." Then Allah would say, "No, what happened with Iblis will continue from that time, and both sides, these two branches, will keep running: one of truth and one of falsehood."
+And obviously, in other hadiths, in prayers, in many places, as I have mentioned, this is Shia culture. This is Shia culture. Wherever you look, someone might say, "No, no, he is very good, they are all very good. What is done is done, forget the past." No, no, how can we forget the past? When Allah has not forgotten the past, should we forget it? ... Allah repeats the story of Iblis repeatedly in the Quran. Should we tell Allah, "Why are You talking about the past? Let's talk about something fresh. Let's have fresh talks." Then Allah would say, "No, what happened with Iblis will continue from that time, and both sides, these two branches, will keep running: one of truth and one of falsehood."
 
 ### The Reign of Yazid and the Umayyad Dynasty
 
@@ -364,7 +364,7 @@ Ya Ali (عليه السلام)!
 
 ### Oppression Under the Abbasid Dynasty
 
-So what happened now? Now, refuge is sought with Allah. From around 65 AH until, let's say, at least 55 years later, meaning 110 AH, when Umar ibn Abd al-Aziz came into power. For 55 years, there was a continuous effort to eradicate Azadari—the entire government machinery was deployed. The entire government machinery. After that, Umar ibn Abd al-Aziz came, and he was somewhat moderate. But in any case, after that, a war broke out between the Umayyads and the Abbasids. The Abbasids came to power. When the Abbasids came to power, in whose name did they fight? In the name of the Ahl al-Bayt (عليهم السلام). They claimed, "We will take the right of the Ahl al-Bayt (عليهم السلام) and give it back to them." But as soon as they came to power, they became the greatest enemies of the Ahl al-Bayt (عليهم السلام). [political commentary omitted] They also poisoned all the Imams (عليهم السلام), killed the Imams (عليهم السلام) as much as they could; in fact, the oppression they inflicted was worse than that of the Umayyads. Because the Umayyads were mostly ignorant. The Umayyads were ignorant; they did not know much. They only knew how to use the sword, and even that was through sheer power, otherwise none of them were brave. But the Abbasids oppressed the Ahl al-Bayt (عليهم السلام) both through the sword and through the pen. They made every effort to completely erase the teachings of the Ahl al-Bayt (عليهم السلام). Their oppression was immense.
+So what happened now? Now, refuge is sought with Allah. From around 65 AH until, let's say, at least 55 years later, meaning 110 AH, when Umar ibn Abd al-Aziz came into power. For 55 years, there was a continuous effort to eradicate Azadari—the entire government machinery was deployed. The entire government machinery. After that, Umar ibn Abd al-Aziz came, and he was somewhat moderate. But in any case, after that, a war broke out between the Umayyads and the Abbasids. The Abbasids came to power. When the Abbasids came to power, in whose name did they fight? In the name of the Ahl al-Bayt (عليهم السلام). They claimed, "We will take the right of the Ahl al-Bayt (عليهم السلام) and give it back to them." But as soon as they came to power, they became the greatest enemies of the Ahl al-Bayt (عليهم السلام). ... They also poisoned all the Imams (عليهم السلام), killed the Imams (عليهم السلام) as much as they could; in fact, the oppression they inflicted was worse than that of the Umayyads. Because the Umayyads were mostly ignorant. The Umayyads were ignorant; they did not know much. They only knew how to use the sword, and even that was through sheer power, otherwise none of them were brave. But the Abbasids oppressed the Ahl al-Bayt (عليهم السلام) both through the sword and through the pen. They made every effort to completely erase the teachings of the Ahl al-Bayt (عليهم السلام). Their oppression was immense.
 
 ## The Revival of Azadari Under the Buyids
 
@@ -376,13 +376,13 @@ There is a great scholar of composition whose name is Abu al-Abbas Taqi al-Din a
 
 ## The Rise and Fall of Azadari in North Africa and the Seljuk Era
 
-[political commentary omitted]
+...
 
 On the third side was the Idrisid dynasty, called the Adarisah, which was in North Africa. They established Azadari, so in the next hundred to one hundred and fifty years—one hundred and fifty to two hundred years—Azadari was established everywhere, and Azadari spread everywhere, and the remembrance of Husayn (عليه السلام) spread. But after these one hundred and fifty to two hundred years, what I am reading and telling you is absolutely clear. That is, I am not saying anything from my own side. When something becomes common, we take it for granted. We think, "Oh, this is our birthright." This is not a birthright. You must always appreciate its value. In those days, the Shias thought, "Oh, who can snatch this Azadari from us?" And then the Seljuk rule came. The Seljuks arrived—they were all Turks. What they did was work entirely against Azadari, banning Azadari everywhere.
 
 ### The Fall of Aleppo and the Massacre of Shias
 
-[political commentary omitted]
+...
 
 And he put an end to Azadari, and what was the second major thing he did, according to them? You know Aleppo (Halab). Aleppo in Syria was a center of Shi'ism, a very big center at one time, just like Qom or Najaf is today; Aleppo was the center. He came to Aleppo. He could not attack directly, so first, through his spies, he spread talk in Aleppo saying, "Brother, we are all one, Muslims should be united, we should work together, and we should fight the Crusades." You understand the Crusades, right? The war against the Christians. So he said, "You and we should fight together." What happened was that under this pretext, he entered Aleppo. After that, he brought his armies into Aleppo, and there in Aleppo—yes, Aleppo, in English they call it Aleppo—he carried out a massacre.
 
@@ -470,29 +470,29 @@ Until now, we had been mentioning the martyrdom of the companions; today, after 
 
 ### Preparing for the Battlefield
 
-It is strange and extraordinary that when all the companions were killed and the family of Aqeel was killed, after that, Janab-e-Zaynab began to say to both of her children, "Go and sacrifice yourselves for your maternal uncle." The children said, "Mother, you come with us and ask uncle." Janab-e-Zaynab took both children and stood before Husayn (عليه السلام). She stood silently. 
+It is strange and extraordinary that when all the companions were killed and the family of Aqeel was killed, after that, Janab-e-Zaynab began to say to both of her children, "Go and sacrifice yourselves for your maternal uncle." The children said, "Mother, you come with us and ask uncle." Janab-e-Zaynab took both children and stood before Husayn (عليه السلام). She stood silently.
 
-The Imam asked, "Zaynab, what do you want to say?" 
+The Imam asked, "Zaynab, what do you want to say?"
 
-She said, "Brother, you know what I want to say, and I am sure you will not reject my request. I trust you, you will not reject my request. Brother, please give permission to these two so that they may go and be martyred." 
+She said, "Brother, you know what I want to say, and I am sure you will not reject my request. I trust you, you will not reject my request. Brother, please give permission to these two so that they may go and be martyred."
 
-Husayn (عليه السلام) said, "Zaynab, today is indeed the day of martyrdom." Husayn (عليه السلام) gave permission. 
+Husayn (عليه السلام) said, "Zaynab, today is indeed the day of martyrdom." Husayn (عليه السلام) gave permission.
 
 As soon as he gave permission, there is an extraordinary sentence in the Maqtal—I present it to you—that Janab-e-Zaynab brought both children to the tent and started preparing them herself. And while preparing them, she kept advising and consoling them, "My sons, look, sacrifice yourselves, sacrifice yourselves for your uncle. My sons, look, I know you have been hungry and thirsty for three days, but remember two things. My sons, one is that fight in such a way that the enemy realizes you are the grandsons of Ali ibn Abi Talib (عليه السلام) and the grandsons of Ja'far ibn Abi Talib (عليه السلام). Why should you have to say that we belong to the Wali of Allah? Let the army cry out that they are the grandsons of Ali (عليه السلام). And the second thing to keep in mind, my sons, is that I know you are thirsty. They are children, not very old yet. You are thirsty, my children, but look, do not even let the thought of water enter your minds, do not turn towards the water, do not turn towards the Euphrates. Do not even think of water. Yes, my children, Sakinah is thirsty in the tent, Asghar is thirsty. The children are thirsty." She gave them great advice. Zaynab (عليها السلام) advised them and sent the children off.
 
 ### Martyrdom on the Battlefield
 
-Now, there is an extraordinary sentence in the Maqtal: one brother attacked from the right wing, and the other attacked from the left wing, and they fought in such a way that the Syrian army began to flee here and there. Ibn Sa'd said, "O people, these are the children of Bani Hashim, surround them and kill them! Surround them and kill them!" So the wretched ones surrounded them. They surrounded the children and began to strike them. They did this to such an extent that both children called out, "O uncle! Accept our final salutations." 
+Now, there is an extraordinary sentence in the Maqtal: one brother attacked from the right wing, and the other attacked from the left wing, and they fought in such a way that the Syrian army began to flee here and there. Ibn Sa'd said, "O people, these are the children of Bani Hashim, surround them and kill them! Surround them and kill them!" So the wretched ones surrounded them. They surrounded the children and began to strike them. They did this to such an extent that both children called out, "O uncle! Accept our final salutations."
 
-Husayn (عليه السلام) arrived with his strength of arm, Abul Fadl al-Abbas (عليه السلام). By the time they reached, both children had departed from this world. Husayn (عليه السلام) lifted the body of one, and Abbas (عليه السلام) lifted the body of the other. They brought them and placed them in the tent. 
+Husayn (عليه السلام) arrived with his strength of arm, Abul Fadl al-Abbas (عليه السلام). By the time they reached, both children had departed from this world. Husayn (عليه السلام) lifted the body of one, and Abbas (عليه السلام) lifted the body of the other. They brought them and placed them in the tent.
 
-Then it was said to Zaynab (عليها السلام), "O Lady, the princes have arrived, alas, the princes have arrived." Zaynab was on her prayer mat. She said, "Why did they come? I did not ask them to come." 
+Then it was said to Zaynab (عليها السلام), "O Lady, the princes have arrived, alas, the princes have arrived." Zaynab was on her prayer mat. She said, "Why did they come? I did not ask them to come."
 
-They said, "O Lady, please come and see." 
+They said, "O Lady, please come and see."
 
-Now when Zaynab looked, she performed a prostration of gratitude. "O Lord, praise be to You, *taqabbal minni* (accept from me), O Lord, accept my sacrifice." 
+Now when Zaynab looked, she performed a prostration of gratitude. "O Lord, praise be to You, *taqabbal minni* (accept from me), O Lord, accept my sacrifice."
 
-It is written that Zaynab did not shed tears for her beloved ones. O Ali! Even on the eleventh of Muharram, when Zaynab was leaving Karbala, she did not weep for her children. She wept for Husayn (عليه السلام). When she reached Kufah, even then she did not weep for her children. When she arrived in Syria, even then she did not. 
+It is written that Zaynab did not shed tears for her beloved ones. O Ali! Even on the eleventh of Muharram, when Zaynab was leaving Karbala, she did not weep for her children. She wept for Husayn (عليه السلام). When she reached Kufah, even then she did not weep for her children. When she arrived in Syria, even then she did not.
 
 ### The Return to Medina
 
@@ -511,9 +511,9 @@ O Lord, O Lord, hasten the reappearance of the Imam of the Time (عليه الس
 ## Conclusion and Key Takeaways
 
 - The Quranic verse "فاستبقوا الخیرات" (Quran 2:148 / 5:48) commands people to race with one another in good deeds, and the Ahl al-Bayt (عليهم السلام) are the ultimate source of all goodness, as stated in the narration:
-  نحن اصل کل خیر
+ نحن اصل کل خیر
 
-  > **Reference:** [Al-Kaafi](https://hadith.ahlebaytrepo.com/01348/h/119033) (Shaikh Kulaini (a.r.)), vol. 8, p. 242–243, H. 15132
+ > **Reference:** [Al-Kaafi](https://hadith.ahlebaytrepo.com/01348/h/119033) (Shaikh Kulaini (a.r.)), vol. 8, p. 242–243, H. 15132
 - Imam Husayn (عليه السلام) initiated his uprising against Yazid because he saw that Islam was being completely ruined and faced total annihilation.
 - Amir al-Mu'minin (عليه السلام) taught the knowledge of future tribulations and deaths (*'Ilm al-Bala' wal-Manaya*) to his close companions Maitham al-Tammar, Rushayd al-Hajari, and Habib ibn Mazahir.
 - Maitham al-Tammar prophesied, based on the teachings of Amir al-Mu'minin (عليه السلام), that the Ummah would kill the grandson of the Prophet (صلى الله عليه وآله وسلم) on the 10th of Muharram and celebrate it as a day of blessing.
@@ -522,7 +522,7 @@ O Lord, O Lord, hasten the reappearance of the Imam of the Time (عليه الس
 - The mourning ceremonies (*Azadari*) for Imam Husayn (عليه السلام) were established as a "court of inquiry" by Janab-e-Zaynab in the courts of Ibn Ziyad and Yazid to question who killed the Imam and why.
 - Mourning for Imam Husayn (عليه السلام) faced severe state suppression for nearly 350 years (from 61 AH to 400 AH) until dynasties like the Al-Buyah and the Idrisids helped establish and spread it.
 - When asked by Amir al-Mu'minin (عليه السلام) about the meaning of nobility (*mabd/majd*), Imam Hasan (عليه السلام) defined it as:
-  حمل المغارم و ابتناء المکارم
+ حمل المغارم و ابتناء المکارم
 
-  > **Reference:** [Maani al-Akhbar](https://hadith.ahlebaytrepo.com/01560/h/372233) (Shaikh Saduq (a.r.)), vol. 1, p. 401, H. 833 · [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269266) (Allamah Majlisi (a.r.)), vol. 75, pp. 101–102, H. 48351
-  which means bearing the burdens and debts of others and building noble moral character.
+ > **Reference:** [Maani al-Akhbar](https://hadith.ahlebaytrepo.com/01560/h/372233) (Shaikh Saduq (a.r.)), vol. 1, p. 401, H. 833 · [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269266) (Allamah Majlisi (a.r.)), vol. 75, pp. 101–102, H. 48351
+ which means bearing the burdens and debts of others and building noble moral character.

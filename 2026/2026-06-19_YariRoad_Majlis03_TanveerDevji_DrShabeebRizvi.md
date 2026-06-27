@@ -2,10 +2,10 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi  
-**Venue:** Yari Road (Tanveer Devji)  
-**Date:** June 19, 2026 | 3rd Moharram 1447 AH  
-**Series:** Lecture 3 - Moharram 2026  
+**Speaker:** Dr. Shabeeb Rizvi
+**Venue:** Yari Road (Tanveer Devji)
+**Date:** June 19, 2026 | 3rd Moharram 1447 AH
+**Series:** Lecture 3 - Moharram 2026
 
 ---
 
@@ -26,9 +26,9 @@
 - [The Incident of Zubayr](#the-incident-of-zubayr)
 - [The Enmity Toward Imam Ali (عليه السلام)](#the-enmity-toward-imam-ali-عليه-السلام)
 - [The Martyrdom of Wahab](#the-martyrdom-of-wahab)
-  - [Conversion and Devotion](#conversion-and-devotion)
-  - [Seeking Permission for Sacrifice](#seeking-permission-for-sacrifice)
-  - [The Final Request](#the-final-request)
+ - [Conversion and Devotion](#conversion-and-devotion)
+ - [Seeking Permission for Sacrifice](#seeking-permission-for-sacrifice)
+ - [The Final Request](#the-final-request)
 - [Reflections on the Tragedy of Karbala](#reflections-on-the-tragedy-of-karbala)
 - [Closing Supplications](#closing-supplications)
 
@@ -138,7 +138,7 @@ If any human being wants to ask from other human beings, from common people, the
 
 ## The Example Of Tirimmā
 As I mentioned to you before, what did Tirimmā say? Can anyone say this today, tell me?
-[political commentary omitted]
+...
 
 This is a very big matter. It's not a small matter. But anyway, regarding those who are of the Ahl al-Bayt, Muawiya said this, didn't he? "Where did he learn such eloquent mischief?" He asked Tilma.
 

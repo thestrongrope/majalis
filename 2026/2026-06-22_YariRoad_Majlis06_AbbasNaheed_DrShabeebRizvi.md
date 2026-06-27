@@ -2,29 +2,29 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi  
-**Venue:** Yari Road (Abbas Naheed)  
-**Date:** June 22, 2026 | 6th Moharram 1447 AH  
-**Series:** Lecture 6 - Moharram 2026  
+**Speaker:** Dr. Shabeeb Rizvi
+**Venue:** Yari Road (Abbas Naheed)
+**Date:** June 22, 2026 | 6th Moharram 1447 AH
+**Series:** Lecture 6 - Moharram 2026
 
 ---
 
 ## Table of Contents
 
 - [Ali is the Foundation of Religion](#ali-is-the-foundation-of-religion)
-  - [The Significance of Mentioning Ali](#the-significance-of-mentioning-ali)
+ - [The Significance of Mentioning Ali](#the-significance-of-mentioning-ali)
 - [The Lighthouse of Faith](#the-lighthouse-of-faith)
 - [The Ultimate Goal of Guidance](#the-ultimate-goal-of-guidance)
-  - [The Concepts of Hidayah and Ihtida](#the-concepts-of-hidayah-and-ihtida)
+ - [The Concepts of Hidayah and Ihtida](#the-concepts-of-hidayah-and-ihtida)
 - [The Concept of Al-Ghurr al-Muhajjalin](#the-concept-of-al-ghurr-al-muhajjalin)
 - [The Testimony of Wilayyah](#the-testimony-of-wilayyah)
 - [The Hadith of Al-Ihtijaj](#the-hadith-of-al-ihtijaj)
-  - [The Writing on Creation](#the-writing-on-creation)
+ - [The Writing on Creation](#the-writing-on-creation)
 - [The Obligation of Testifying to the Wilayah of Ali](#the-obligation-of-testifying-to-the-wilayah-of-ali)
 - [The Distortion of Religion and the Lessons of Ziyarat Arba'een](#the-distortion-of-religion-and-the-lessons-of-ziyarat-arbaeen)
 - [The Tragedy of Qasim ibn Hasan](#the-tragedy-of-qasim-ibn-hasan)
-  - [The Amulet of Imam Hasan](#the-amulet-of-imam-hasan)
-  - [The Martyrdom of Qasim on Ashura](#the-martyrdom-of-qasim-on-ashura)
+ - [The Amulet of Imam Hasan](#the-amulet-of-imam-hasan)
+ - [The Martyrdom of Qasim on Ashura](#the-martyrdom-of-qasim-on-ashura)
 - [Closing Supplications](#closing-supplications)
 
 ## Summary
@@ -34,12 +34,12 @@ The lecture focuses on a hadith where the Prophet (صلى الله عليه وآ
 يا علي أنت أصل الدين ومنار الإيمان وغاية الهدى وقائد الغر المحجلين
 > Reference:
 
-The speaker explains that Ali (عليه السلام) is the foundation of religion, without whom religion cannot exist. [political commentary omitted] As the "lighthouse of faith," Ali (عليه السلام) guides believers so their faith does not crash and sink. He is also the ultimate goal of guidance, as supported by the Quranic verse:
+The speaker explains that Ali (عليه السلام) is the foundation of religion, without whom religion cannot exist. ... As the "lighthouse of faith," Ali (عليه السلام) guides believers so their faith does not crash and sink. He is also the ultimate goal of guidance, as supported by the Quranic verse:
 
 إنما أنت منذر ولكل قوم هاد
 > Reference:
 
-where the Prophet (صلى الله عليه وآله وسلم) identified himself as the warner and Ali (عليه السلام) as the guide. Furthermore, as the leader of the "radiant ones" (الغر المحجلين), Ali (عليه السلام) leads those with completely pure, unadulterated faith. [political commentary omitted] The Ahl al-Bayt (عليهم السلام) prioritize pure belief over physical lineage, as demonstrated by Imam al-Sadiq (عليه السلام) stating that his Wilayah of Ali (عليه السلام) is more beloved to him than his physical descent from him.
+where the Prophet (صلى الله عليه وآله وسلم) identified himself as the warner and Ali (عليه السلام) as the guide. Furthermore, as the leader of the "radiant ones" (الغر المحجلين), Ali (عليه السلام) leads those with completely pure, unadulterated faith. ... The Ahl al-Bayt (عليهم السلام) prioritize pure belief over physical lineage, as demonstrated by Imam al-Sadiq (عليه السلام) stating that his Wilayah of Ali (عليه السلام) is more beloved to him than his physical descent from him.
 
 The speaker presents historical narrations to emphasize the divine decree of Ali's (عليه السلام) Wilayah. A narration from Sheikh Tusi's *Amali* describes how the Prophet (صلى الله عليه وآله وسلم) requested his ring to be engraved with his name, but it miraculously ended up bearing "Muhammad Rasulullah, Ali Waliyyullah," with Angel Jibril (عليه السلام) explaining that Allah wrote what He willed. Another narration from *Ihtijaj al-Tabarsi* refutes altered accounts of the Mi'raj. The Imam (عليه السلام) clarified that when Allah created the Throne, the angels, the heavens, the earth, the sun, and the moon, He inscribed upon them:
 
@@ -51,7 +51,7 @@ The Imam (عليه السلام) then commanded:
 فَإِذَا قَالَ أَحَدُكُمْ لَا إِلَهَ إِلَّا اللهُ مُحَمَّدٌ رَسُولُ اللهِ فَلْيَقُلْ عَلِيٌّ أَمِيرُ الْمُؤْمِنِينَ
 > Reference:
 
-The speaker argues that this command indicates that testifying to Ali's (عليه السلام) Wilayah is essential for the acceptance of the testimonies of Tawhid and Prophethood. [political commentary omitted] The lecture concludes by referencing Ziyarat Arba'een, noting how those who opposed Ali (عليه السلام) sold their eternal reward for the lowest, cheapest worldly gains.
+The speaker argues that this command indicates that testifying to Ali's (عليه السلام) Wilayah is essential for the acceptance of the testimonies of Tawhid and Prophethood. ... The lecture concludes by referencing Ziyarat Arba'een, noting how those who opposed Ali (عليه السلام) sold their eternal reward for the lowest, cheapest worldly gains.
 
 ---
 
@@ -94,7 +94,7 @@ In the noble hadith chosen for this gathering, the Holy Prophet (صلى الله
 
 ### The Significance of Mentioning Ali
 
-So if anyone objects that you people say "Ali, Ali" in everything, they should go and question the Prophet. [political commentary omitted]
+So if anyone objects that you people say "Ali, Ali" in everything, they should go and question the Prophet. ...
 
 Now, if something is the root, we will mention that very thing, won't we, brothers? If there are scattered leaves here and there, what is the use of mentioning them? The garbage collector will just pick them up and take them away.
 
@@ -137,9 +137,9 @@ And then at the end, the Prophet says: "وقائد الغر المحجلین".
 
 ## The Concept of Al-Ghurr al-Muhajjalin
 
-*Muhajjalin*. *Ghurr* refers to a horse whose forehead—for example, if the entire horse is black and its forehead is white, then it is called *ghurr* in Arabic. It is called *ghurr*. This is a sign of purity from one side of the horse, which we in our language call a sign of being a 'Sayyid'. This is the purity of its lineage from one side. From one side of the horse, it is a sign of its being a 'Sayyid', *ghurr*. And *muhajjal* means when its forehead is white and its two hands and feet—all four limbs of the horse—also have whiteness on them. If this is the case, it means this horse is pure from both aspects. That is, it is a 'Sayyid' from the mother's side and also from the father's side. What we in our language call *Najeeb al-Tarfayn* (noble from both sides). This is *Najeeb al-Tarfayn*. From both aspects, it is a completely pure-bred horse. 
+*Muhajjalin*. *Ghurr* refers to a horse whose forehead—for example, if the entire horse is black and its forehead is white, then it is called *ghurr* in Arabic. It is called *ghurr*. This is a sign of purity from one side of the horse, which we in our language call a sign of being a 'Sayyid'. This is the purity of its lineage from one side. From one side of the horse, it is a sign of its being a 'Sayyid', *ghurr*. And *muhajjal* means when its forehead is white and its two hands and feet—all four limbs of the horse—also have whiteness on them. If this is the case, it means this horse is pure from both aspects. That is, it is a 'Sayyid' from the mother's side and also from the father's side. What we in our language call *Najeeb al-Tarfayn* (noble from both sides). This is *Najeeb al-Tarfayn*. From both aspects, it is a completely pure-bred horse.
 
-The Prophet says you are the leader of *al-Ghurr al-Muhajjalin*. That is, those individuals who are completely pure in their belief in every aspect, in whose belief there is not even an iota of mixture, who do not have the slightest hesitation in their belief. Obviously, what is being discussed here [political commentary omitted] is being discussed in terms of belief. Now you might ask, "Just now you gave an example regarding lineage, but you are translating it in terms of belief." So, let us submit to you that what is dearer to the Ahl al-Bayt (علیہم السلام) is belief. Wow, wow, wow, wow! Salman was nothing, he was a stranger, but it was said: *Minna Ahl al-Bayt* (from us, the Ahl al-Bayt). Wow, wow, wow, wow! And for the one who was the actual uncle of the Prophet, the Quran was revealed:
+The Prophet says you are the leader of *al-Ghurr al-Muhajjalin*. That is, those individuals who are completely pure in their belief in every aspect, in whose belief there is not even an iota of mixture, who do not have the slightest hesitation in their belief. Obviously, what is being discussed here ... is being discussed in terms of belief. Now you might ask, "Just now you gave an example regarding lineage, but you are translating it in terms of belief." So, let us submit to you that what is dearer to the Ahl al-Bayt (علیہم السلام) is belief. Wow, wow, wow, wow! Salman was nothing, he was a stranger, but it was said: *Minna Ahl al-Bayt* (from us, the Ahl al-Bayt). Wow, wow, wow, wow! And for the one who was the actual uncle of the Prophet, the Quran was revealed:
 
 تبت یدا ابی لہب و تب
 
@@ -177,13 +177,13 @@ So, Sheikh Tusi narrates this tradition, and he narrates it from Imam Zayn al-Ab
 
 اللھم صل علی محمد و آل محمد و عجل فرجہم ولعن اعدائہم اجمعین
 
-One day, the Holy Prophet (صلی اللہ علیہ وآله وسلم) gave his ring to the Commander of the Faithful (علیہ السلام) and said, "O Ali, take this ring and give it to the engraver so that he may write on it, and tell him to write on it: Muhammad ibn Abdullah. Write Muhammad ibn Abdullah on the ring." The Commander of the Faithful (علیہ السلام) said, "Alright." He complied with the command, obeyed the instructions, went, and gave it to the engraver. When the Commander of the Faithful (علیہ السلام) went to collect the ring, it was written on it: Muhammad Rasulullah. Wow, wow, Subhanallah! 
+One day, the Holy Prophet (صلی اللہ علیہ وآله وسلم) gave his ring to the Commander of the Faithful (علیہ السلام) and said, "O Ali, take this ring and give it to the engraver so that he may write on it, and tell him to write on it: Muhammad ibn Abdullah. Write Muhammad ibn Abdullah on the ring." The Commander of the Faithful (علیہ السلام) said, "Alright." He complied with the command, obeyed the instructions, went, and gave it to the engraver. When the Commander of the Faithful (علیہ السلام) went to collect the ring, it was written on it: Muhammad Rasulullah. Wow, wow, Subhanallah!
 
-So the Commander of the Faithful (علیہ السلام) said, "My brother, I told you to write Muhammad ibn Abdullah, why did you write Muhammad Rasulullah?" He said, "O Ali! No matter how much I tried to write ibn Abdullah, it kept turning into Rasulullah. Wow, wow, wow, wow! I was trying to write ibn Abdullah, and my hand was automatically writing Rasulullah. A mistake was made by me, an error occurred, what can I do?" He said, "Nothing can be done about it." It was engraved, alright, so he handed over the ring. 
+So the Commander of the Faithful (علیہ السلام) said, "My brother, I told you to write Muhammad ibn Abdullah, why did you write Muhammad Rasulullah?" He said, "O Ali! No matter how much I tried to write ibn Abdullah, it kept turning into Rasulullah. Wow, wow, wow, wow! I was trying to write ibn Abdullah, and my hand was automatically writing Rasulullah. A mistake was made by me, an error occurred, what can I do?" He said, "Nothing can be done about it." It was engraved, alright, so he handed over the ring.
 
 The Commander of the Faithful (علیہ السلام) brought the ring to the Messenger of Allah and gave it to the Prophet, "O Messenger of Allah, this engraver made a mistake, and I had told him..." So the Messenger of Allah said, "It does not matter, I am Muhammad ibn Abdullah and I am also Muhammad Rasulullah." No problem, alright.
 
-Now, the Prophet took the ring, and when he kept the ring at night and woke up the next morning, it was written on it: Muhammad Rasulullah, Ali Waliullah. Wow, Mashallah! Slogan of Haydari: Ya Ali! 
+Now, the Prophet took the ring, and when he kept the ring at night and woke up the next morning, it was written on it: Muhammad Rasulullah, Ali Waliullah. Wow, Mashallah! Slogan of Haydari: Ya Ali!
 
 And the Prophet was astonished to see it. "What is this? How did this happen on its own?" Now the Prophet was thinking, in wonder, in astonishment—yes, we are talking about the Prophet, not anyone else. This sentence of the hadith is why we said at the beginning, we submitted to you, that the hadith is absolutely authentic in terms of its chain. Let no one doubt whether the hadith is authentic, weak, or what—no. The Prophet was completely astonished. The Prophet wondered how this happened. While the Prophet was in this state of wonder and astonishment, Gabriel descended and said, "Allah sends you peace. Allah greets you with peace and says: O Messenger of Allah! O Prophet! O Muhammad! You had written what you wished, and I had written what I wished." Wow, wow, wow, wow! Recite a salawat upon Muhammad and the progeny of Muhammad.
 
@@ -193,9 +193,9 @@ Did you notice? So Allah wants that whenever the Prophet's name is mentioned, Al
 
 ## The Hadith of Al-Ihtijaj
 
-Now we present another hadith to you so that the matter is fully completed. Now, this second hadith that you see, we give you the reference so that you remain satisfied that the hadith we are reading, we are reading it correctly, not by listening to some cassette, or what do they call it? We are not reading it by watching YouTube, yes. Right? 
+Now we present another hadith to you so that the matter is fully completed. Now, this second hadith that you see, we give you the reference so that you remain satisfied that the hadith we are reading, we are reading it correctly, not by listening to some cassette, or what do they call it? We are not reading it by watching YouTube, yes. Right?
 
-This next hadith is from *Ihtijaj al-Tabarsi* (رضوان الله تعالى عليه). As you know, *Ihtijaj al-Tabarsi* is a very reliable book. Allamah Majlisi narrated this hadith in *Bihar al-Anwar*, Volume 27; it is the first hadith of *Bihar*, Volume 27. And *Ihtijaj al-Tabarsi*—you know *Ihtijaj al-Tabarsi* (meaning the late Tabarsi)—his name was Abu Mansur. Abu Mansur was his kunyah, and his name was Ahmad ibn Ali ibn Abi Talib al-Tabarsi (رضوان الله تعالى عليه). He was a great scholar and a very wonderful devotee of Mawla Ali. And if you just want to understand his greatness, just understand that Ibn Shahr Ashub al-Mazandarani was his student. Meaning, such a great scholar! You know, the author of books like *Manaqib Al Abi Talib*, *Mathalib al-Nawasib*... from this itself one can understand how he himself was. 
+This next hadith is from *Ihtijaj al-Tabarsi* (رضوان الله تعالى عليه). As you know, *Ihtijaj al-Tabarsi* is a very reliable book. Allamah Majlisi narrated this hadith in *Bihar al-Anwar*, Volume 27; it is the first hadith of *Bihar*, Volume 27. And *Ihtijaj al-Tabarsi*—you know *Ihtijaj al-Tabarsi* (meaning the late Tabarsi)—his name was Abu Mansur. Abu Mansur was his kunyah, and his name was Ahmad ibn Ali ibn Abi Talib al-Tabarsi (رضوان الله تعالى عليه). He was a great scholar and a very wonderful devotee of Mawla Ali. And if you just want to understand his greatness, just understand that Ibn Shahr Ashub al-Mazandarani was his student. Meaning, such a great scholar! You know, the author of books like *Manaqib Al Abi Talib*, *Mathalib al-Nawasib*... from this itself one can understand how he himself was.
 
 So this gentleman, the late Tabarsi, in his book *al-Ihtijaj*—and we have heard from great scholars, they all emphasize that this book should be in every home. And its debates, rather, whoever the teachers are, these teachers should teach this book in their classes. We ourselves have heard that teachers should teach this book in their classes, and parents should teach it to their children. It is a very important book. In it, all the debates—debates of the Quran, debates of the Messenger of Allah, debates of all the other Infallibles and the companions—he has narrated all of them in two volumes in *al-Ihtijaj*. *Ihtijaj* means debate.
 
@@ -350,7 +350,7 @@ Slogan of Haydari: Ya Ali!
 
 It is obligatory upon him. "فَلْيَقُلْ" is an imperative verb in Arabic. "فَلْيَقُلْ" is an imperative verb, and some people interpret it by saying that this imperative verb—meaning the occurrence of a command—does not necessarily prove obligatoriness; it could be a proof for recommendation. So we replied, "Fine, what you say is correct. But there must be a preponderating factor for everything. When you present an argument, there must be a preponderating factor for that argument—meaning a preferential factor, to give preference. To give preference as to why we should say it is not obligatory but recommended. If you bring a proof for this, that it is not obligatory but recommended, then fine. Yes, if you say, 'Do not say it under Taqiyyah,' then that makes sense. But if you say absolutely that it is recommended, then this does not make sense because you have two hadiths before you—and these are just two, otherwise we have collected all our hadiths, and there are many such hadiths, a complete book, which has not been published, we didn't print it because otherwise they would say, 'Look, now they have started this as well.' Otherwise, there is a whole book containing nothing but hadiths. That whenever a person recites the two testimonies—meaning these two testimonies of the Messenger of Allah (صلى الله عليه وآله وسلم), i.e., testifying to the Oneness of Allah and testifying to the messengership of the Messenger of Allah (صلى الله عليه وآله وسلم)—it is obligatory upon him to testify to the Wilayah of Ali (عليه السلام). Otherwise, his two testimonies will not be accepted. Subhan Allah. These two testimonies are not accepted, and there is a narration about this that in Ma'ad (the Hereafter), on the Day of Judgment, when people are called to give testimony, people will testify—the Bakris will say, "لَا إِلَهَ إِلَّا اللهُ مُحَمَّدٌ رَسُولُ اللهِ". They will be told, "Speak further!" But nothing further will come out. "Throw him into Hell!" Because "عَلِيٌّ وَلِيُّ اللهِ" will not come out of their mouths.
 
-And that is why the people of the past, including our scholars, used to emphasize this greatly, they emphasized it very much that, "No, it must be like this." (meaning, the successor of the Messenger of Allah (صلى الله عليه وآله وسلم) and the immediate caliph) is still recited in the Adhan, but previously they used to write it on banners everywhere as well. And they were not afraid. It is only in the last few years that this has happened to us, everyone became a chicken. [political commentary omitted]. It is clear, isn't it? You already know the story of the chickens. So everyone became a chicken. So, just as the Bakris say, this chicken does the same. I... they say, "Do not say this, we feel bad," so they removed it, saying, "Okay, we removed it, now it's fine." Is it clear to you? That is, this situation is a tragedy. That is, this is one aspect of the oppression of Amir al-Mu'minin (عليه السلام) and Islam. So this is it. This is their narration of the Ascension. 
+And that is why the people of the past, including our scholars, used to emphasize this greatly, they emphasized it very much that, "No, it must be like this." (meaning, the successor of the Messenger of Allah (صلى الله عليه وآله وسلم) and the immediate caliph) is still recited in the Adhan, but previously they used to write it on banners everywhere as well. And they were not afraid. It is only in the last few years that this has happened to us, everyone became a chicken. ... It is clear, isn't it? You already know the story of the chickens. So everyone became a chicken. So, just as the Bakris say, this chicken does the same. I... they say, "Do not say this, we feel bad," so they removed it, saying, "Okay, we removed it, now it's fine." Is it clear to you? That is, this situation is a tragedy. That is, this is one aspect of the oppression of Amir al-Mu'minin (عليه السلام) and Islam. So this is it. This is their narration of the Ascension.
 
 ## The Distortion of Religion and the Lessons of Ziyarat Arba'een
 
@@ -382,7 +382,7 @@ Until his blood was shed in Your obedience. Imam Husayn (عليه السلام) 
 
 وَاسْتُبِيحَ حَرِيمُهُ۔
 
-And the sanctity of his household was violated. It was deemed permissible. See, killing is one thing, plundering is another thing. But to deem it permissible is the worst thing. [political commentary omitted] They did this, that they deemed the blood of the household, and his—meaning Imam Husayn's (عليه السلام)—blood, and the sanctity of the household, as permissible. And they performed this act.
+And the sanctity of his household was violated. It was deemed permissible. See, killing is one thing, plundering is another thing. But to deem it permissible is the worst thing. ... They did this, that they deemed the blood of the household, and his—meaning Imam Husayn's (عليه السلام)—blood, and the sanctity of the household, as permissible. And they performed this act.
 
 ## The Tragedy of Qasim ibn Hasan
 
@@ -390,7 +390,7 @@ O mourners! Today, the one whose tragedy we have to recite, that child's name is
 
 أحلى من العسل۔
 
-"Sweeter than honey." [political commentary omitted] How much he desires death, martyrdom, how much longing he holds! When Imam Husayn (عليه السلام) was calling out the names of each martyr in the register of martyrdom, he did not call Qasim's name. The child went to a corner, sat down, and began to weep.
+"Sweeter than honey." ... How much he desires death, martyrdom, how much longing he holds! When Imam Husayn (عليه السلام) was calling out the names of each martyr in the register of martyrdom, he did not call Qasim's name. The child went to a corner, sat down, and began to weep.
 
 ### The Amulet of Imam Hasan
 
@@ -408,7 +408,7 @@ So while on one hand Qasim was happy to hear his name, that his name was in the 
 
 "O uncle! Will they come to the tents?"
 
-The Imam (عليه السلام) consoled him, "No, the enemies will not enter the tents. I myself will take Ali Asghar to the battlefield." Qasim's heart found peace. I would say, O honorable one of Bani Hashim! [political commentary omitted] Sham-e-Ghariban, what a state it was when on the afternoon of Ashura, the enemies entered the tents boldly. They snatched the veils from the heads of the ladies.
+The Imam (عليه السلام) consoled him, "No, the enemies will not enter the tents. I myself will take Ali Asghar to the battlefield." Qasim's heart found peace. I would say, O honorable one of Bani Hashim! ... Sham-e-Ghariban, what a state it was when on the afternoon of Ashura, the enemies entered the tents boldly. They snatched the veils from the heads of the ladies.
 
 ### The Martyrdom of Qasim on Ashura
 
@@ -456,4 +456,4 @@ the Prophet (صلى الله عليه وآله وسلم) clarified the roles by 
 عَلِيٌّ أَمِيرُ الْمُؤْمِنِينَ
 > Reference:
 as the testimonies are not accepted without testifying to the Wilayah of Ali (عليه السلام).
-- The lecture concludes with the tragedy of Karbala, recounting how Qasim ibn Hasan went to the battlefield with a written testament from his father, Imam al-Hasan, urging him to aid his uncle, Imam al-Husayn (عليه السلام), before being brutally martyred. [political commentary omitted]
+- The lecture concludes with the tragedy of Karbala, recounting how Qasim ibn Hasan went to the battlefield with a written testament from his father, Imam al-Hasan, urging him to aid his uncle, Imam al-Husayn (عليه السلام), before being brutally martyred. ...
