@@ -2,10 +2,10 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi
-**Venue:** Mahdiyyah, Bandra West
-**Date:** June 21, 2026 | 5th Moharram 1447 AH
-**Series:** Lecture 6 - Moharram 2026
+**Speaker:** Dr. Shabeeb Rizvi  
+**Venue:** Mahdiyyah, Bandra West  
+**Date:** June 21, 2026 | 5th Moharram 1447 AH  
+**Series:** Lecture 6 - Moharram 2026  
 
 ---
 
@@ -15,22 +15,22 @@
 - [Allah's Promise of Divine Assistance](#allahs-promise-of-divine-assistance)
 - [Hazrat Moses (عليه السلام) and the Magicians](#hazrat-moses-عليه-السلام-and-the-magicians)
 - [The Fear of Prophet Moses (عليه السلام)](#the-fear-of-prophet-moses-عليه-السلام)
- - [The Miracle of the Staff and the Magicians](#the-miracle-of-the-staff-and-the-magicians)
- - [Pharaoh's Threat and the Steadfastness of the Believers](#pharaohs-threat-and-the-steadfastness-of-the-believers)
+  - [The Miracle of the Staff and the Magicians](#the-miracle-of-the-staff-and-the-magicians)
+  - [Pharaoh's Threat and the Steadfastness of the Believers](#pharaohs-threat-and-the-steadfastness-of-the-believers)
 - [Understanding Divine Help and the Reality of Life](#understanding-divine-help-and-the-reality-of-life)
- - [The Concept of Istidraj (Respite for the Disbelievers)](#the-concept-of-istidraj-respite-for-the-disbelievers)
+  - [The Concept of Istidraj (Respite for the Disbelievers)](#the-concept-of-istidraj-respite-for-the-disbelievers)
 - [The Recitation of the Verse on the Night of Ashura](#the-recitation-of-the-verse-on-the-night-of-ashura)
 - [The Tested Believer and the Realm of Particles](#the-tested-believer-and-the-realm-of-particles)
- - [The Three Great Tests](#the-three-great-tests)
+  - [The Three Great Tests](#the-three-great-tests)
 - [The Purpose of Istikhara and Divine Trials](#the-purpose-of-istikhara-and-divine-trials)
 - [The Consequences of Withholding Wealth](#the-consequences-of-withholding-wealth)
 - [Generosity as a Cover for Defects](#generosity-as-a-cover-for-defects)
 - [Three Groups for Whom Creation Seeks Forgiveness](#three-groups-for-whom-creation-seeks-forgiveness)
 - [The Generosity of Ahl al-Bayt and the Status of Imam Hussain](#the-generosity-of-ahl-al-bayt-and-the-status-of-imam-hussain)
- - [The Unique Blessings of Sayyid al-Shuhada](#the-unique-blessings-of-sayyid-al-shuhada)
+  - [The Unique Blessings of Sayyid al-Shuhada](#the-unique-blessings-of-sayyid-al-shuhada)
 - [The Night of Ashura and the Scroll of Martyrdom](#the-night-of-ashura-and-the-scroll-of-martyrdom)
- - [The Amulet of Hazrat Qasim](#the-amulet-of-hazrat-qasim)
- - [The Martyrdom of Qasim](#the-martyrdom-of-qasim)
+  - [The Amulet of Hazrat Qasim](#the-amulet-of-hazrat-qasim)
+  - [The Martyrdom of Qasim](#the-martyrdom-of-qasim)
 - [Concluding Supplications](#concluding-supplications)
 
 ## Summary
@@ -130,7 +130,7 @@ The speaker urges believers not to be miserly, especially when spending on the p
 
 ## Excelling in Good Deeds
 
-This noble verse has been chosen as the title of this ten-day series of lectures, and in this noble verse, God Almighty is saying:
+This noble verse has been chosen as the title of this ten-day series of lectures, and in this noble verse, God Almighty is saying: 
 
 فاستبقوا الخیرات
 
@@ -144,11 +144,11 @@ As much as possible, everyone should try to excel one another in this path. Whet
 
 ## Allah's Promise of Divine Assistance
 
-Meaning Allah is saying: اِنَّا, indeed We; لَنَنصُرُ, Allah is saying with emphasis, emphasizing, "We will certainly help," لَنَنصُرُ. Whom will We help? رُسُلَنَا, Our messengers, وَالَّذِینَ آمَنُوا, and those who believe. We will certainly help, always, be sure, do not even bring any doubt to your mind that if someone belongs to Sayyid al-Shuhada (سید الشھداء), then Sayyid al-Shuhada (سید الشھداء) belongs to them. Remember this, in fact, whatever we can do, they do many times more for us and will do so, therefore a person should never worry. Allah's promise:
+Meaning Allah is saying: اِنَّا, indeed We; لَنَنصُرُ, Allah is saying with emphasis, emphasizing, "We will certainly help," لَنَنصُرُ. Whom will We help? رُسُلَنَا, Our messengers, وَالَّذِینَ آمَنُوا, and those who believe. We will certainly help, always, be sure, do not even bring any doubt to your mind that if someone belongs to Sayyid al-Shuhada (سید الشھداء), then Sayyid al-Shuhada (سید الشھداء) belongs to them. Remember this, in fact, whatever we can do, they do many times more for us and will do so, therefore a person should never worry. Allah's promise: 
 
 اِنَّا لَنَنصُرُ رُسُلَنَا وَالَّذِینَ آمَنُوا فِی الْحَیَاةِ الدُّنْیَا
 
-This is not just talking about the reward of the Hereafter, but in this world:
+This is not just talking about the reward of the Hereafter, but in this world: 
 
 فِی الْحَیَاةِ الدُّنْیَا وَیَوْمَ یَقُومُ الْأَشْهَادُ
 
@@ -170,7 +170,7 @@ And thus We save the believers. Allah says He grants them salvation; it is Allah
 
 ## Hazrat Moses (عليه السلام) and the Magicians
 
-A small example is presented for your consideration from the Quran, from the Holy Quran. When Hazrat Moses (عليه السلام) came to Pharaoh, ... Pharaoh said that the magicians should be summoned. I am speaking very briefly, very—meaning I am not telling the entire detailed story. Pharaoh said the magicians should be summoned. The magicians came, and Pharaoh said, "Brother, we have to defeat Moses." The magicians asked, "Will we get some reward or not?" He asked, "What reward do you want?" They said, "We want to become close to you." See, that is like seeking proximity (قربتہ الی اللہ), but to Pharaoh instead of Allah. What did the magicians say? "We want to become close to you." Generally, the concern of worldly people is to get close to some big person; if they get close to him, then they will get this position, that money, that wealth, that status, that prestige, they will get these worldly things, so just stick with him. This is clear to you. They said this, and Pharaoh said, "Fine, you will become close, no problem."
+A small example is presented for your consideration from the Quran, from the Holy Quran. When Hazrat Moses (عليه السلام) came to Pharaoh, ... Pharaoh said that the magicians should be summoned. I am speaking very briefly, very—meaning I am not telling the entire detailed story. Pharaoh said the magicians should be summoned. The magicians came, and Pharaoh said, "Brother, we have to defeat Moses." The magicians asked, "Will we get some reward or not?" He asked, "What reward do you want?" They said, "We want to become close to you." See, that is like seeking proximity (قربتہ الی اللہ), but to Pharaoh instead of Allah. What did the magicians say? "We want to become close to you." Generally, the concern of worldly people is to get close to some big person; if they get close to him, then they will get this position, that money, that wealth, that status, that prestige, they will get these worldly things, so just stick with him. This is clear to you. They said this, and Pharaoh said, "Fine, you will become close, no problem." 
 
 But as soon as they came and stood before Hazrat Moses (عليه السلام) for the contest, now see, the gaze of grace of the Proof of Allah (حجتِ خدا) fell upon them; the merciful gaze of the Proof of Allah (حجتِ خدا) fell upon the magicians. This is a very important thing. If the Proof of Allah (حجتِ خدا), if the Imam of the time casts his merciful gaze upon someone, then guidance becomes their destiny. Now here, these magicians had come to fight Hazrat Moses (عليه السلام), but the merciful gaze of the Proof of Allah (حجتِ خدا) fell upon them. Now as soon as the gaze—they did their work, they threw their ropes, and they became snakes.
 
@@ -338,7 +338,7 @@ When the Wilayah was presented, the majority failed. Except for a few. The Imam 
 
 And in this world too, Allah will test them. Allah tests everyone; most people do not realize that they are being tested. Most people do not understand this, but Allah takes the test. By giving trials, difficulties, and through calamities. For example, a gentleman was facing a problem, so I simply asked him, "I heard you are facing this problem?" He said, "Yes, and look, we did it after seeking an Istikhara, yet it did not turn out well. So what is the use of Istikhara?" لَا إِلَٰهَ إِلَّا ٱللَّٰهُ! He thought that if they seek an Istikhara, the door of testing will be closed. Seeking an Istikhara does not close the door of testing. If it were such that by seeking an Istikhara nothing bad would happen, then all the children sitting in an exam would look at an Istikhara for every question and tick the mark. After that, when they fail, they would say, "Look, we did an Istikhara and still failed, which means Istikhara has no meaning."
 
-Istikhara is not for that. Istikhara means that if you do this work after it and Allah's guidance comes, then understand its meaning from it. After that, whatever calamity comes, whatever test occurs, that test from Allah is better for you. You cannot understand it. Because we only understand outward things; our intellects cannot comprehend more than that. Our intellects are very limited, very limited, they cannot understand beyond this. So this is what is called a tested believer (Mumin-e-Mumtahan).
+Istikhara is not for that. Istikhara means that if you do this work after it and Allah's guidance comes, then understand its meaning from it. After that, whatever calamity comes, whatever test occurs, that test from Allah is better for you. You cannot understand it. Because we only understand outward things; our intellects cannot comprehend more than that. Our intellects are very limited, very limited, they cannot understand beyond this. So this is what is called a tested believer (Mumin-e-Mumtahan). 
 
 Thus, Allah takes tests. When the test of the Wilayah of Ali ibn Abi Talib (عليه السلام) was taken, everyone failed except for a very few. There was a very small minority that passed, and it is that same minority that passes in this world. It is that same minority that says "Aliun Waliullah" in this world. It is that same minority that confesses the Wilayah of Ali (عليه السلام) in this world, goes for Ziyarah to Ali (عليه السلام) and says:
 
@@ -354,14 +354,14 @@ Haidari! Ya Ali!
 
 ## The Consequences of Withholding Wealth
 
-So, there are many benefits to this generosity. Another benefit is that it is proof of a person being rational and wise. A person who just sits on their wealth—for example, a person accumulated all their money, and then termites ate it. There were paper notes in those days, and they ate the notes completely. Or, as you saw, many announcements were made on November 8th, and such announcements happen where many people suffer losses. Whatever happens, let me present one thing to you: Allah extracts money through various excuses. You must understand this much: if a person does not give gracefully in the way of Allah—what a beautiful point, wow, wow!—then Allah knows many ways. He knows income tax, He knows GST, He knows hospitals, He knows lawyers. Allah has created this world with so many different ways to extract that money. If that same money had been spent in the way of Allah, neither this issue nor that problem would have arisen. Nothing would have happened; Allah Himself would have protected it because Allah has promised. Wow, wow, wow, wow, wow!
+So, there are many benefits to this generosity. Another benefit is that it is proof of a person being rational and wise. A person who just sits on their wealth—for example, a person accumulated all their money, and then termites ate it. There were paper notes in those days, and they ate the notes completely. Or, as you saw, many announcements were made on November 8th, and such announcements happen where many people suffer losses. Whatever happens, let me present one thing to you: Allah extracts money through various excuses. You must understand this much: if a person does not give gracefully in the way of Allah—what a beautiful point, wow, wow!—then Allah knows many ways. He knows income tax, He knows GST, He knows hospitals, He knows lawyers. Allah has created this world with so many different ways to extract that money. If that same money had been spent in the way of Allah, neither this issue nor that problem would have arisen. Nothing would have happened; Allah Himself would have protected it because Allah has promised. Wow, wow, wow, wow, wow! 
 
 And people spend on all these other things like crazy. Why? Because when someone does not spend in the way of Allah, Allah knows how to set them straight. And in the end, nothing is left for them. A person may have immense wealth, but then they find out they have diabetes, so now they cannot even eat. This problem arose, so they cannot eat that; that problem arose, so they cannot eat this. And they end up in the hospital. They became so civilized—as Akbar Allahabadi says:
 
 "They became so civilized, they never saw the face of home,
 Their life was spent in hotels, and they died in the hospital."
 
-What a point! This is life. Allah knows how to set them straight. And then what happens in the end is that they say, "I no longer find any joy in living." There is a gentleman with whom we have relations—meaning, I have business relations with him. He worked hard his entire life for his son, spending a great deal on him. And now that the son has grown up, and he spent everything on him, his education and everything is done—I am talking about a recent event, not old, just a week ago. The son said, "Don't message me anymore." The son says, "Don't message me, I don't need you, don't waste my time," and God knows what else he said. The father said, "Now there is no meaning for me to live, I don't want to live." Why? Because for them, living and dying is understood in this way. Anyway, I gave this small example. This is how it is in the world; Allah has many patterns and ways to set someone straight.
+What a point! This is life. Allah knows how to set them straight. And then what happens in the end is that they say, "I no longer find any joy in living." There is a gentleman with whom we have relations—meaning, I have business relations with him. He worked hard his entire life for his son, spending a great deal on him. And now that the son has grown up, and he spent everything on him, his education and everything is done—I am talking about a recent event, not old, just a week ago. The son said, "Don't message me anymore." The son says, "Don't message me, I don't need you, don't waste my time," and God knows what else he said. The father said, "Now there is no meaning for me to live, I don't want to live." Why? Because for them, living and dying is understood in this way. Anyway, I gave this small example. This is how it is in the world; Allah has many patterns and ways to set someone straight. 
 
 ## Generosity as a Cover for Defects
 
@@ -417,41 +417,41 @@ And those who are generous. For them, all of these seek forgiveness. Whosoever i
 
 ## The Generosity of Ahl al-Bayt and the Status of Imam Hussain
 
-The Mawla says:
+The Mawla says: 
 
 "من ايقن بالخلف جاد بالعطية"
 
 > **Reference:** [Man la Yahduruhu al-Faqih](https://hadith.ahlebaytrepo.com/01347/h/103885) (Shaikh Saduq (a.r.), d. 381 AH), vol. 4, p. 416, H. 7581
 
-Whoever is certain of the returns is generous in giving. Subhan Allah. Whoever is certain that Allah exists, whoever is certain that Imam Hussain (عليه السلام) exists, whoever is certain that the Imam of our Time (عجل اللہ تعالیٰ فرجہ الشریف) exists, and whoever knows that he is generous. Don't we recite it here in the Ziyarah? We recite the Ziyarah of the Imam of our Time (عجل اللہ تعالیٰ فرجہ الشریف), don't we? What phrase do we recite on Friday: "أنت كريم من أولاد الكرام". You are generous. What does generous mean? Who is called generous? The one who rewards goodness with goodness. Generous. "من أولاد الكرام" and your ancestors are all generous. Indeed.
+Whoever is certain of the returns is generous in giving. Subhan Allah. Whoever is certain that Allah exists, whoever is certain that Imam Hussain (عليه السلام) exists, whoever is certain that the Imam of our Time (عجل اللہ تعالیٰ فرجہ الشریف) exists, and whoever knows that he is generous. Don't we recite it here in the Ziyarah? We recite the Ziyarah of the Imam of our Time (عجل اللہ تعالیٰ فرجہ الشریف), don't we? What phrase do we recite on Friday: "أنت كريم من أولاد الكرام". You are generous. What does generous mean? Who is called generous? The one who rewards goodness with goodness. Generous. "من أولاد الكرام" and your ancestors are all generous. Indeed. 
 
-If anyone spends even a single penny for the Ahl al-Bayt, always remember, they did not do it for the Ahl al-Bayt, they did it for themselves. Because the Ahl al-Bayt do not keep anyone's debt and return it many times over. They give it back many times over. This is the Ahl al-Bayt.
+If anyone spends even a single penny for the Ahl al-Bayt, always remember, they did not do it for the Ahl al-Bayt, they did it for themselves. Because the Ahl al-Bayt do not keep anyone's debt and return it many times over. They give it back many times over. This is the Ahl al-Bayt. 
 
 ### The Unique Blessings of Sayyid al-Shuhada
 
-Because Allah has kept a very great reward for Imam Hussain (عليه السلام), as you know, it is found in the narrations. But all the Imams, whoever they were, did everything for the sake of Allah. However, regarding Imam Hussain (عليه السلام), we find strange and wonderful words in some Hadiths. That Allah has kept some special things for him which are not for everyone. One of them is that whoever stands under his dome, meaning under the Qubbah, and supplicates, their supplication will be answered. Allah will never reject their supplication. And his soil, meaning the Turbah, the clay of cure (Khak-e-Shifa), Allah has placed cure in it.
+Because Allah has kept a very great reward for Imam Hussain (عليه السلام), as you know, it is found in the narrations. But all the Imams, whoever they were, did everything for the sake of Allah. However, regarding Imam Hussain (عليه السلام), we find strange and wonderful words in some Hadiths. That Allah has kept some special things for him which are not for everyone. One of them is that whoever stands under his dome, meaning under the Qubbah, and supplicates, their supplication will be answered. Allah will never reject their supplication. And his soil, meaning the Turbah, the clay of cure (Khak-e-Shifa), Allah has placed cure in it. 
 
 See, all the Imams are infallible, all have their own high status, but these characteristics are only for the Chief of Martyrs. They are not for everyone. Not even for the other Imams. So if someone goes to Mashhad, brings back the soil of Mashhad and eats it, no, that is not allowed. That is not it. You can ask any jurist (faqih), do not ask us. You can ask any Marja' of the religion. Ask them and see what answer they give. This is only for Imam Hussain (عليه السلام), that's it. Because the sacrifice that Imam Hussain (عليه السلام) gave, the way he gave it, Allah loved it, and Allah chose him. Who are we to speak about this? Just imagine.
 
 ## The Night of Ashura and the Scroll of Martyrdom
 
-It is the night of Ashura, Imam Hussain (عليه السلام) is sitting with his companions. First, the Chief of Martyrs told everyone that whoever wants to leave may leave. Whoever wants to go, go. But no one left. He said, "I give you the guarantee of Paradise, go. Go, there is a guarantee of Paradise. I promise you that you will enter Paradise." Still, no one budged. No one moved from their place. The Chief of Martyrs then extinguished the lamp. "Perhaps you are feeling shy and do not want to leave in front of me in the light. Therefore, I extinguish the lamp so that you may leave, go." Do you know what the Chief of Martyrs saw when he lit the lamp again? All these companions were sitting in their places, holding their swords to their necks. "Mawla, you are talking about one life. If we were to get seventy lives like this, we would sacrifice them for you." How beautiful!
+It is the night of Ashura, Imam Hussain (عليه السلام) is sitting with his companions. First, the Chief of Martyrs told everyone that whoever wants to leave may leave. Whoever wants to go, go. But no one left. He said, "I give you the guarantee of Paradise, go. Go, there is a guarantee of Paradise. I promise you that you will enter Paradise." Still, no one budged. No one moved from their place. The Chief of Martyrs then extinguished the lamp. "Perhaps you are feeling shy and do not want to leave in front of me in the light. Therefore, I extinguish the lamp so that you may leave, go." Do you know what the Chief of Martyrs saw when he lit the lamp again? All these companions were sitting in their places, holding their swords to their necks. "Mawla, you are talking about one life. If we were to get seventy lives like this, we would sacrifice them for you." How beautiful! 
 
-After that, Hussain (عليه السلام) began to read the scroll of martyrdom. He began to read the scroll of martyrdom. He started taking the name of each martyr. ... He took the name of each martyr, took everyone's name among the companions, and after that, he began to take the names of all his Ahl al-Bayt. He took the names of the martyrs of Bani Hashim, took everyone's name.
+After that, Hussain (عليه السلام) began to read the scroll of martyrdom. He began to read the scroll of martyrdom. He started taking the name of each martyr. ... He took the name of each martyr, took everyone's name among the companions, and after that, he began to take the names of all his Ahl al-Bayt. He took the names of the martyrs of Bani Hashim, took everyone's name. 
 
 ### The Amulet of Hazrat Qasim
 
-But there was a child, thirteen years old, whose name Hussain (عليه السلام) did not take. When that child saw that his name was not in the scroll of martyrdom, he went to a corner and began to weep, began to lament. And while weeping, he suddenly remembered that when his father was leaving this world, he had tied an amulet (ta'weez) on his arm and said, "My son Qasim, when a very great calamity befalls you, open this amulet. In it will be the solution to your calamity." Qasim thought, what greater calamity could there be than this? What could be a greater calamity than this? Immediately, Qasim opened the amulet. Now when he opened and looked, it was written on it, "My son Qasim, O my beloved Qasim, be of help to your uncle Hussain (عليه السلام)."
+But there was a child, thirteen years old, whose name Hussain (عليه السلام) did not take. When that child saw that his name was not in the scroll of martyrdom, he went to a corner and began to weep, began to lament. And while weeping, he suddenly remembered that when his father was leaving this world, he had tied an amulet (ta'weez) on his arm and said, "My son Qasim, when a very great calamity befalls you, open this amulet. In it will be the solution to your calamity." Qasim thought, what greater calamity could there be than this? What could be a greater calamity than this? Immediately, Qasim opened the amulet. Now when he opened and looked, it was written on it, "My son Qasim, O my beloved Qasim, be of help to your uncle Hussain (عليه السلام)." 
 
-As soon as the child, as soon as the child read this writing, a smile appeared on his face. What an extraordinary child of Karbala, smiling even upon seeing the message of death. And smiling, he came and handed the writing to the Chief of Martyrs. He said, "My son, what is this?" He said, "It is my father's message." As soon as Hussain (عليه السلام) read his brother's writing, after reading the writing, Imam Hussain (عليه السلام) said, "My son Qasim, this is not just your father's writing, but you have brought your own message of death." Qasim said, "Uncle, it is my father's command." Hussain (عليه السلام) said, "Qasim, Qasim, I did not take your name from the scroll of martyrdom, otherwise your name was there, Qasim, and not only your name, but also the name of your brother Ali al-Asghar."
+As soon as the child, as soon as the child read this writing, a smile appeared on his face. What an extraordinary child of Karbala, smiling even upon seeing the message of death. And smiling, he came and handed the writing to the Chief of Martyrs. He said, "My son, what is this?" He said, "It is my father's message." As soon as Hussain (عليه السلام) read his brother's writing, after reading the writing, Imam Hussain (عليه السلام) said, "My son Qasim, this is not just your father's writing, but you have brought your own message of death." Qasim said, "Uncle, it is my father's command." Hussain (عليه السلام) said, "Qasim, Qasim, I did not take your name from the scroll of martyrdom, otherwise your name was there, Qasim, and not only your name, but also the name of your brother Ali al-Asghar." 
 
 So while the honorable child of Bani Hashim, on one hand, became happy hearing that his name was in the scroll of martyrdom, on the other hand, as soon as he heard the name of Ali al-Asghar, he writhed in pain. And writhing in pain, he asked Imam Hussain (عليه السلام), "یا عم، هل یصلون الی الخیام"? He said, "Uncle, will these wretched ones enter the tents? Will these wretched ones enter the tents?" Hussain (عليه السلام) explained, "No, my son, I myself, I myself will take Ali al-Asghar, and Ali al-Asghar will be martyred in the battlefield." I say, O honorable ones of Bani Hashim, just writhe in pain upon hearing this, ask Sayyid al-Sajjad (عليه السلام) who was witnessing this scene himself.
 
 ### The Martyrdom of Qasim
 
-The day of Ashura arrived, and one by one, the martyrs were martyred. After the Zuhr prayer, when the turn of Bani Hashim came, everyone was martyred. Now Qasim came and stood in front of him, "Uncle, please give me permission." How could the Mawla give permission? The Mawla was only looking. "Uncle, please give me permission." Now let me present one sentence from the Maqtal (narrative of martyrdom) to you. This is enough to make you weep, this lamentation is enough. It is written in the Maqtal that when the Imam was not giving permission, Qasim took both hands of Imam Hussain (عليه السلام) and began to rub them against his eyes. "Master, give permission; uncle, give permission; Mawla, give permission." Hussain (عليه السلام) said, "Go, Qasim, today is the day of martyrdom."
+The day of Ashura arrived, and one by one, the martyrs were martyred. After the Zuhr prayer, when the turn of Bani Hashim came, everyone was martyred. Now Qasim came and stood in front of him, "Uncle, please give me permission." How could the Mawla give permission? The Mawla was only looking. "Uncle, please give me permission." Now let me present one sentence from the Maqtal (narrative of martyrdom) to you. This is enough to make you weep, this lamentation is enough. It is written in the Maqtal that when the Imam was not giving permission, Qasim took both hands of Imam Hussain (عليه السلام) and began to rub them against his eyes. "Master, give permission; uncle, give permission; Mawla, give permission." Hussain (عليه السلام) said, "Go, Qasim, today is the day of martyrdom." 
 
-Hussain prepared Qasim. Hussain (عليه السلام) himself adorned him. After adorning Qasim, Imam Hussain (عليه السلام) embraced Qasim once. Both uncle and nephew wept so much, wept so much that they lost consciousness. Friends, when someone weeps, when someone faints, water is sprinkled on them at that time to revive them from the swoon. But alas, the helplessness of Zainab (عليها السلام)! Where could Zainab (عليها السلام) get water? She sprinkled tears. When he regained consciousness, "Brother, now let Qasim go, do not stop Qasim now." Hussain comforted Qasim. But while leaving, he tore his collar. He said, "Uncle, what is this?" He said, "This is the sign of orphans."
+Hussain prepared Qasim. Hussain (عليه السلام) himself adorned him. After adorning Qasim, Imam Hussain (عليه السلام) embraced Qasim once. Both uncle and nephew wept so much, wept so much that they lost consciousness. Friends, when someone weeps, when someone faints, water is sprinkled on them at that time to revive them from the swoon. But alas, the helplessness of Zainab (عليها السلام)! Where could Zainab (عليها السلام) get water? She sprinkled tears. When he regained consciousness, "Brother, now let Qasim go, do not stop Qasim now." Hussain comforted Qasim. But while leaving, he tore his collar. He said, "Uncle, what is this?" He said, "This is the sign of orphans." 
 
 Now Qasim went, and while fighting, he sent many of the wretched ones to Hell. Once, a wretched one, a villain made such a strike that Qasim... Now he could not balance himself on the horse. Now when he fell down, he kept falling. The wretched ones began to trample Qasim's body with their horses. The horses from here to there, and the horses from there to here. Qasim's, Qasim's weak body was now being torn to pieces. He called out: "یا عم! Uncle! Come to my aid." When Imam Hussain reached, Qasim had departed from this world.
 
@@ -461,9 +461,9 @@ Now Qasim went, and while fighting, he sent many of the wretched ones to Hell. O
 
 > **Reference:** Quran [Al-Baqarah] 2:156
 
-(اَللّٰھُمَّ الْعَنْ قَتَلَةَ اَمِیْرِالْمُؤْمِنِیْنَ) (اَللّٰھُمَّ الْعَنْ اَوَّلَ ظَالِمٍ ظَلَمَ حَقَّ مُحَمَّدٍ وَ آلِ مُحَمَّدٍ وَ آخِرَ تَابِعٍ لَّہُ عَلٰی ذٰلِکَ) (اَللّٰھُمَّ الْعَنِ الْعِصَابَةَ الَّتِیْ جَاھَدَتِ الْحُسَیْنَ وَ شَایَعَتْ وَ بَایَعَتْ عَلٰی قَتْلِہِ اَللّٰھُمَّ الْعَنْھُمْ جَمِیْعًا) (عَلٰی لَعْنَةِ اللّٰہِ عَلَی الْقَوْمِ الظَّالِمِیْنَ)
+(اَللّٰھُمَّ الْعَنْ قَتَلَةَ اَمِیْرِالْمُؤْمِنِیْنَ) (اَللّٰھُمَّ الْعَنْ اَوَّلَ ظَالِمٍ ظَلَمَ حَقَّ مُحَمَّدٍ وَ آلِ مُحَمَّدٍ وَ آخِرَ تَابِعٍ لَّہُ عَلٰی ذٰلِکَ) (اَللّٰھُمَّ الْعَنِ الْعِصَابَةَ الَّتِیْ جَاھَدَتِ الْحُسَیْنَ وَ شَایَعَتْ وَ بَایَعَتْ عَلٰی قَتْلِہِ اَللّٰھُمَّ الْعَنْھُمْ جَمِیْعًا) (عَلٰی لَعْنَةِ اللّٰہِ عَلَی الْقَوْمِ الظَّالِمِیْنَ) 
 
-O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). Count us among his helpers and companions. O Lord! Whoever is in distress, remove their distress. Whoever is in debt, pay off their debts. Grant them righteous, good, and pious offspring. Whoever is sick, grant them complete and speedy recovery. Whoever is far from their homeland, return them safe and sound. Wherever the Shias of Haider-e-Karrar (عليه السلام) are in the world, protect their lives, wealth, honor, and dignity.
+O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). Count us among his helpers and companions. O Lord! Whoever is in distress, remove their distress. Whoever is in debt, pay off their debts. Grant them righteous, good, and pious offspring. Whoever is sick, grant them complete and speedy recovery. Whoever is far from their homeland, return them safe and sound. Wherever the Shias of Haider-e-Karrar (عليه السلام) are in the world, protect their lives, wealth, honor, and dignity. 
 
 O Lord! Protect the noble scholars and the grand authorities (Maraji'). Protect the holy shrines. Those who are protecting them, protect them. O Lord! Bless us with the visitation (Ziyarah) of Muhammad and the progeny of Muhammad (صلى الله عليه وآله وسلم) in this world, and the intercession (Shafa'ah) of Muhammad and the progeny of Muhammad (صلى الله عليه وآله وسلم) in the Hereafter. Accept this humble mourning of ours. Matam-e-Hussain.
 
@@ -472,39 +472,39 @@ O Lord! Protect the noble scholars and the grand authorities (Maraji'). Protect 
 ## Conclusion and Key Takeaways
 
 - Believers are urged to race with one another in performing good deeds, and Imam Husayn (عليه السلام) is the ultimate source of all goodness:
- فاستبقوا الخیرات
+  فاستبقوا الخیرات
 
- > **Reference:** Quran [Al-Baqarah] 2:148
+  > **Reference:** Quran [Al-Baqarah] 2:148
 
 - God has promised in the Quran to help His messengers and the believers both in this worldly life and on the Day of Judgment:
- اِنَّا لَنَنصُرُ رُسُلَنَا وَالَّذِینَ آمَنُوا فِی الْحَیَاةِ الدُّنْیَا وَیَوْمَ یَقُومُ الْأَشْهَادُ
+  اِنَّا لَنَنصُرُ رُسُلَنَا وَالَّذِینَ آمَنُوا فِی الْحَیَاةِ الدُّنْیَا وَیَوْمَ یَقُومُ الْأَشْهَادُ
 
- > **Reference:** Quran [Ghafir] 40:51
+  > **Reference:** Quran [Ghafir] 40:51
 
 - When Pharaoh's magicians witnessed the miracle of Hazrat Moses (عليه السلام), they immediately embraced faith and disregarded Pharaoh's threats of torture, declaring that their ultimate return was to their Lord:
- اِنَّا اِلٰی رَبِّنَا مُنقَلِبُونَ
+  اِنَّا اِلٰی رَبِّنَا مُنقَلِبُونَ
 
- > **Reference:** Quran [Ash-Shu'ara] 26:50
+  > **Reference:** Quran [Ash-Shu'ara] 26:50
 
 - True believers do not fear worldly loss or death, as the Quran clarifies that those martyred in the way of God are alive and sustained by Him:
- لَا تَحسَبَنَّ الَّذِینَ قُتِلُوا فِی سَبِیلِ اللہِ اَموَاتًا بَل اَحیَاءٌ عِندَ رَبِّھِم یُرزَقُونَ
+  لَا تَحسَبَنَّ الَّذِینَ قُتِلُوا فِی سَبِیلِ اللہِ اَموَاتًا بَل اَحیَاءٌ عِندَ رَبِّھِم یُرزَقُونَ
 
- > **Reference:** Quran [Al 'Imran] 3:169
+  > **Reference:** Quran [Al 'Imran] 3:169
 
 - The worldly respite and material blessings given to disbelievers are a form of gradual entrapment (استدراج) so that they accumulate more sins, leading to a humiliating punishment:
- وَلَا یَحسَبَنَّ الَّذِینَ کَفَرُوا اَنَّمَا نُملِی لَھُم خَیرٌ لِّاَنفُسِھِم اِنَّمَا نُملِی لَھُم لِیَزدَادُوا اِثمًا وَلَھُم عَذَابٌ مُّھِین
+  وَلَا یَحسَبَنَّ الَّذِینَ کَفَرُوا اَنَّمَا نُملِی لَھُم خَیرٌ لِّاَنفُسِھِم اِنَّمَا نُملِی لَھُم لِیَزدَادُوا اِثمًا وَلَھُم عَذَابٌ مُّھِین
 
- > **Reference:** Quran [Al 'Imran] 3:178
+  > **Reference:** Quran [Al 'Imran] 3:178
 
 - Imam Hasan al-Mujtaba (عليه السلام) defined true generosity as answering the petitioner and giving to those who are deserving:
- إِجَابَةُ السَّائِلِ وَ بَذْلُ النَّائِلِ
+  إِجَابَةُ السَّائِلِ وَ بَذْلُ النَّائِلِ
 
- > **Reference:** [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269266) (Allamah Majlisi (a.r.)), vol. 75, pp. 101–102, H. 48351 · [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/304042) (Ibn Shu'ba al-Harrani), vol. 1, pp. 301–307, H. 559
+  > **Reference:** [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269266) (Allamah Majlisi (a.r.)), vol. 75, pp. 101–102, H. 48351 · [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/304042) (Ibn Shu'ba al-Harrani), vol. 1, pp. 301–307, H. 559
 
 - According to the Ahl al-Bayt (عليهم السلام), true Shi'as are recognized by their distinct qualities, particularly their generosity and willingness to spend on their brothers:
- إِنَّمَا شِيعَتُنَا يُعْرَفُونَ بِخِصَالٍ شَتَّى بِالسَّخَاءِ وَ الْبَذْلِ لِلْإِخْوَانِ
+  إِنَّمَا شِيعَتُنَا يُعْرَفُونَ بِخِصَالٍ شَتَّى بِالسَّخَاءِ وَ الْبَذْلِ لِلْإِخْوَانِ
 
- > **Reference:** [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/304042) (Ibn Shu'ba al-Harrani), vol. 1, pp. 301–307, H. 559 · [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269874) (Allamah Majlisi (a.r.)), vol. 75, pp. 279–286, H. 48959
+  > **Reference:** [Tuhaf al-Uqool](https://hadith.ahlebaytrepo.com/01440/h/304042) (Ibn Shu'ba al-Harrani), vol. 1, pp. 301–307, H. 559 · [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269874) (Allamah Majlisi (a.r.)), vol. 75, pp. 279–286, H. 48959
 
 - In the primordial realm of particles (عالم ذر), God tested humanity regarding His oneness, the messengership of Prophet Muhammad (صلى الله عليه وآله وسلم), and the Wilayah of Imam Ali (عليه السلام), a test in which only a small minority succeeded.
 - If a person does not willingly spend their wealth in the way of God and for the cause of Imam Husayn (عليه السلام), God has various worldly means—such as taxes, medical expenses, or legal fees—to extract that wealth without any spiritual reward.

@@ -2,28 +2,28 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi
-**Venue:** Yari Road (Tanveer Devji)
-**Date:** June 18, 2026 | 2nd Moharram 1447 AH
-**Series:** Lecture 2 - Moharram 2026
+**Speaker:** Dr. Shabeeb Rizvi  
+**Venue:** Yari Road (Tanveer Devji)  
+**Date:** June 18, 2026 | 2nd Moharram 1447 AH  
+**Series:** Lecture 2 - Moharram 2026  
 
 ---
 
 ## Table of Contents
 
 - [The Nature of Greed](#the-nature-of-greed)
- - [The Illusion of Wealth](#the-illusion-of-wealth)
- - [The Humility of Human Existence](#the-humility-of-human-existence)
- - [The Fate of the World-Seeker](#the-fate-of-the-world-seeker)
- - [Choked by the Water of Desire](#choked-by-the-water-of-desire)
- - [The Pain of Loss and Blind Desires](#the-pain-of-loss-and-blind-desires)
- - [The Story of the Hoopoe and the Crow](#the-story-of-the-hoopoe-and-the-crow)
- - [Destiny and the Pursuit of Wealth](#destiny-and-the-pursuit-of-wealth)
+  - [The Illusion of Wealth](#the-illusion-of-wealth)
+  - [The Humility of Human Existence](#the-humility-of-human-existence)
+  - [The Fate of the World-Seeker](#the-fate-of-the-world-seeker)
+  - [Choked by the Water of Desire](#choked-by-the-water-of-desire)
+  - [The Pain of Loss and Blind Desires](#the-pain-of-loss-and-blind-desires)
+  - [The Story of the Hoopoe and the Crow](#the-story-of-the-hoopoe-and-the-crow)
+  - [Destiny and the Pursuit of Wealth](#destiny-and-the-pursuit-of-wealth)
 - [The Danger of Greed and Worldly Desires](#the-danger-of-greed-and-worldly-desires)
- - [The Spiritual Senses and Whispers of Satan](#the-spiritual-senses-and-whispers-of-satan)
+  - [The Spiritual Senses and Whispers of Satan](#the-spiritual-senses-and-whispers-of-satan)
 - [The Tragedy of Umar ibn Sa'd and the Greed for Rey](#the-tragedy-of-umar-ibn-sad-and-the-greed-for-rey)
 - [The Departure of Imam Hussain (عليه السلام) from Medina](#the-departure-of-imam-hussain-عليه-السلام-from-medina)
- - [Supplications](#supplications)
+  - [Supplications](#supplications)
 
 ## Summary
 
@@ -63,248 +63,248 @@ Ultimately, greed acts as an unfaithful guarantor, often choking a person before
 
 "Imam al-Sadiq (عليه السلام)"
 
- Let's check the translation of:
- "رسول اللہ (صلی اللہ علیہ وآلہ وسلم)"
- -> "Messenger of Allah (صلى الله عليه وآله وسلم)"
+        Let's check the translation of:
+        "رسول اللہ (صلی اللہ علیہ وآلہ وسلم)"
+        -> "Messenger of Allah (صلى الله عليه وآله وسلم)"
 
- Let's check the translation of:
- "جعفر ابن محمد (علیہما السلام)"
- -> "Ja'far ibn Muhammad (عليهما السلام)"
+        Let's check the translation of:
+        "جعفر ابن محمد (علیہما السلام)"
+        -> "Ja'far ibn Muhammad (عليهما السلام)"
 
- Let's check the translation of:
- "شیخِ عامری"
- -> "Sheikh al-Amili"
+        Let's check the translation of:
+        "شیخِ عامری"
+        -> "Sheikh al-Amili"
 
- Let's check the translation of:
- "شیخِ عامری اللہ مجلسی"
- -> "Sheikh al-Amili, [Allamah] Majlisi"
+        Let's check the translation of:
+        "شیخِ عامری اللہ مجلسی"
+        -> "Sheikh al-Amili, [Allamah] Majlisi"
 
- Let's check the translation of:
- "صاحبِ محاسن برقی"
- -> "the author of *Al-Mahasin* al-Barqi"
+        Let's check the translation of:
+        "صاحبِ محاسن برقی"
+        -> "the author of *Al-Mahasin* al-Barqi"
 
- Let's check the translation of:
- "صاحبِ مجموع جناب محمد بن یحییٰ العطار رضوان اللہ تعالیٰ علیہ"
- -> "the compiler Janab Muhammad ibn Yahya al-Attar (may Allah be pleased with him)"
+        Let's check the translation of:
+        "صاحبِ مجموع جناب محمد بن یحییٰ العطار رضوان اللہ تعالیٰ علیہ"
+        -> "the compiler Janab Muhammad ibn Yahya al-Attar (may Allah be pleased with him)"
 
- Let's check the translation of:
- "صاحبِ جامع کافی، جامع، جنابِ محمد بن یحییٰ العطار"
- -> "the compiler of *Al-Kafi*, Janab Muhammad ibn Yahya al-Attar"
+        Let's check the translation of:
+        "صاحبِ جامع کافی، جامع، جنابِ محمد بن یحییٰ العطار"
+        -> "the compiler of *Al-Kafi*, Janab Muhammad ibn Yahya al-Attar"
 
- Let's check the translation of:
- "وسائل الشیعہ"
- -> "*Wasa'il al-Shia*"
+        Let's check the translation of:
+        "وسائل الشیعہ"
+        -> "*Wasa'il al-Shia*"
 
- Let's check the translation of:
- "باب الاستحباب، الاستغناء عن الناس"
- -> "Bab al-Istihbab, al-Istighna' 'an al-Nas (The Chapter on the Recommendation of Being Independent of People)"
+        Let's check the translation of:
+        "باب الاستحباب، الاستغناء عن الناس"
+        -> "Bab al-Istihbab, al-Istighna' 'an al-Nas (The Chapter on the Recommendation of Being Independent of People)"
 
- Let's check the translation of:
- "طمع الحوائج منھم"
- -> "طمع الحوائج منھم" (coveting the fulfillment of needs from them)
+        Let's check the translation of:
+        "طمع الحوائج منھم"
+        -> "طمع الحوائج منھم" (coveting the fulfillment of needs from them)
 
- Let's check the translation of:
- "والیاس مما فی ایدیھم، مما فی ایدیھم"
- -> "والیاس مما فی ایدیھم، مما فی ایدیھم" (and despairing of what is in their hands)
+        Let's check the translation of:
+        "والیاس مما فی ایدیھم، مما فی ایدیھم"
+        -> "والیاس مما فی ایدیھم، مما فی ایدیھم" (and despairing of what is in their hands)
 
- Let's check the translation of:
- "الاستغناء عن الناس"
- -> "الاستغناء عن الناس" (being independent of people)
+        Let's check the translation of:
+        "الاستغناء عن الناس"
+        -> "الاستغناء عن الناس" (being independent of people)
 
- Let's check the translation of:
- "قناعت"
- -> "contentment"
+        Let's check the translation of:
+        "قناعت"
+        -> "contentment"
 
- Let's check the translation of:
- "مَرَارَۃُ النَّاسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ اور مَرَارَۃُ الْیَأْسِ"
- -> "وَمَرَارَۃُ الْیَأْسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ" (And the bitterness of despair [of what people have] is better than begging from people)
+        Let's check the translation of:
+        "مَرَارَۃُ النَّاسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ اور مَرَارَۃُ الْیَأْسِ"
+        -> "وَمَرَارَۃُ الْیَأْسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ" (And the bitterness of despair [of what people have] is better than begging from people)
 
- Let's check the translation of:
- "فَإِنَّ الْفَقْرَ فَإِنَّہُ الْفَقْرُ الْحَاضِرْ"
- -> "فَإِنَّہُ الْفَقْرُ الْحَاضِرْ" (for indeed it is present poverty)
+        Let's check the translation of:
+        "فَإِنَّ الْفَقْرَ فَإِنَّہُ الْفَقْرُ الْحَاضِرْ"
+        -> "فَإِنَّہُ الْفَقْرُ الْحَاضِرْ" (for indeed it is present poverty)
 
- Let's check the translation of:
- "فَقْرُ الْحَاضِرْ"
- -> "فَقْرُ الْحَاضِرْ" (present poverty)
+        Let's check the translation of:
+        "فَقْرُ الْحَاضِرْ"
+        -> "فَقْرُ الْحَاضِرْ" (present poverty)
 
- Let's check the translation of:
- "طمع"
- -> "tama' (طمع)"
+        Let's check the translation of:
+        "طمع"
+        -> "tama' (طمع)"
 
- Let's check the translation of:
- "یاس"
- -> "yas (یاس)"
+        Let's check the translation of:
+        "یاس"
+        -> "yas (یاس)"
 
- Let's check the translation of:
- "زہد"
- -> "zuhd (زہد)"
+        Let's check the translation of:
+        "زہد"
+        -> "zuhd (زہد)"
 
- Let's check the translation of:
- "لَکَیْلَا تَأْسَوْا عَلَی مَا فاتَکُمْ وَلَا تَفْرَحُوا بِمَا آتَاکُمْ"
- -> "لَکَیْلَا تَأْسَوْا عَلَی مَا فَاتَکُمْ وَلَا تَفْرَحُوا بِمَا آتَاکُمْ"
+        Let's check the translation of:
+        "لَکَیْلَا تَأْسَوْا عَلَی مَا فاتَکُمْ وَلَا تَفْرَحُوا بِمَا آتَاکُمْ"
+        -> "لَکَیْلَا تَأْسَوْا عَلَی مَا فَاتَکُمْ وَلَا تَفْرَحُوا بِمَا آتَاکُمْ"
 
- Let's check the translation of:
- "وَابْتَغُوا مِن فَضْلِ اللَّهِ"
- -> "وَابْتَغُوا مِن فَضْلِ اللَّهِ"
+        Let's check the translation of:
+        "وَابْتَغُوا مِن فَضْلِ اللَّهِ"
+        -> "وَابْتَغُوا مِن فَضْلِ اللَّهِ"
 
- Let's check the translation of:
- "اِزْھَدْ فِی الدُّنْیَا یُحِبُّکَ اللہُ"
- -> "اِزْھَدْ فِی الدُّنْیَا یُحِبُّکَ اللہُ"
+        Let's check the translation of:
+        "اِزْھَدْ فِی الدُّنْیَا یُحِبُّکَ اللہُ"
+        -> "اِزْھَدْ فِی الدُّنْیَا یُحِبُّکَ اللہُ"
 
- Let's check the translation of:
- "وَازْھَدْ فِیْمَا فِیْ اَیْدِی النَّاسِ یُحِبُّکَ النَّاسُ"
- -> "وَازْھَدْ فِیْمَا فِیْ اَیْدِی النَّاسِ یُحِبُّکَ النَّاسُ"
+        Let's check the translation of:
+        "وَازْھَدْ فِیْمَا فِیْ اَیْدِی النَّاسِ یُحِبُّکَ النَّاسُ"
+        -> "وَازْھَدْ فِیْمَا فِیْ اَیْدِی النَّاسِ یُحِبُّکَ النَّاسُ"
 
- Let's check the translation of:
- "من اہل البیت"
- -> "from the Ahl al-Bayt (من اہل البیت)"
+        Let's check the translation of:
+        "من اہل البیت"
+        -> "from the Ahl al-Bayt (من اہل البیت)"
 
- Let's check the translation of:
- "من ذکرنا"
- -> "من ذکرنا" (whoever remembers us)
+        Let's check the translation of:
+        "من ذکرنا"
+        -> "من ذکرنا" (whoever remembers us)
 
- Let's check the translation of:
- "او ذکرنا عندہ"
- -> "او ذکرنا عندہ" (or we are mentioned in his presence)
+        Let's check the translation of:
+        "او ذکرنا عندہ"
+        -> "او ذکرنا عندہ" (or we are mentioned in his presence)
 
- Let's check the translation of:
- "فخرج عن عینیہ مثل جناح الذباب"
- -> "فخرج عن عینیہ مثل جناح الذباب" (and from his eyes flows a tear like the wing of a gnat)
+        Let's check the translation of:
+        "فخرج عن عینیہ مثل جناح الذباب"
+        -> "فخرج عن عینیہ مثل جناح الذباب" (and from his eyes flows a tear like the wing of a gnat)
 
- Let's check the translation of:
- "غفر اللہ ذنوبہ"
- -> "غفر اللہ ذنوبہ" (Allah will forgive his sins)
+        Let's check the translation of:
+        "غفر اللہ ذنوبہ"
+        -> "غفر اللہ ذنوبہ" (Allah will forgive his sins)
 
- Let's check the translation of:
- "ولو کانت اکثر من زبد البحر"
- -> "ولو کانت اکثر من زبد البحر" (even if they were as abundant as the foam of the sea)
+        Let's check the translation of:
+        "ولو کانت اکثر من زبد البحر"
+        -> "ولو کانت اکثر من زبد البحر" (even if they were as abundant as the foam of the sea)
 
- Let's check the translation of:
- "مایوسی"
- -> "despair"
+        Let's check the translation of:
+        "مایوسی"
+        -> "despair"
 
- Let's check the translation of:
- "کفر"
- -> "disbelief (kufr)"
+        Let's check the translation of:
+        "کفر"
+        -> "disbelief (kufr)"
 
- Let's check the translation of:
- "گناہِ کبیرہ"
- -> "major sin (kabirah)"
+        Let's check the translation of:
+        "گناہِ کبیرہ"
+        -> "major sin (kabirah)"
 
- Let's check the translation of:
- "شرک"
- -> "polytheism (shirk)"
+        Let's check the translation of:
+        "شرک"
+        -> "polytheism (shirk)"
 
- Let's check the translation of:
- "مستحب"
- -> "recommended (mustahabb)"
+        Let's check the translation of:
+        "مستحب"
+        -> "recommended (mustahabb)"
 
- Let's check the translation of:
- "مکروہ"
- -> "disliked (makruh)"
+        Let's check the translation of:
+        "مکروہ"
+        -> "disliked (makruh)"
 
- Let's check the translation of:
- "شب بیداری"
- -> "Shab-e-Bidari (night vigil)"
+        Let's check the translation of:
+        "شب بیداری"
+        -> "Shab-e-Bidari (night vigil)"
 
- Let's check the translation of:
- "چندہ"
- -> "donations"
+        Let's check the translation of:
+        "چندہ"
+        -> "donations"
 
- Let's check the translation of:
- "رسید بک"
- -> "receipt book"
+        Let's check the translation of:
+        "رسید بک"
+        -> "receipt book"
 
- Let's check the translation of:
- "صلوات"
- -> "Salawat"
+        Let's check the translation of:
+        "صلوات"
+        -> "Salawat"
 
- Let's check the translation of:
- "غیرت"
- -> "self-respect (ghayrah)"
+        Let's check the translation of:
+        "غیرت"
+        -> "self-respect (ghayrah)"
 
- Let's check the translation of:
- "لالچ"
- -> "greed"
+        Let's check the translation of:
+        "لالچ"
+        -> "greed"
 
- Let's check the translation of:
- "فقیری"
- -> "destitution"
+        Let's check the translation of:
+        "فقیری"
+        -> "destitution"
 
- Let's check the translation of:
- "امیر المومنین (علیہ السلام)"
- -> "Amir al-Mu'minin (عليه السلام)"
+        Let's check the translation of:
+        "امیر المومنین (علیہ السلام)"
+        -> "Amir al-Mu'minin (عليه السلام)"
 
- Let's check the translation of:
- "امام صادق (علیہ السلام)"
- -> "Imam al-Sadiq (عليه السلام)"
+        Let's check the translation of:
+        "امام صادق (علیہ السلام)"
+        -> "Imam al-Sadiq (عليه السلام)"
 
- Let's check the translation of:
- "رسول اللہ (صلی اللہ علیہ وآلہ وسلم)"
- -> "Messenger of Allah (صلى الله عليه وآله وسلم)"
+        Let's check the translation of:
+        "رسول اللہ (صلی اللہ علیہ وآلہ وسلم)"
+        -> "Messenger of Allah (صلى الله عليه وآله وسلم)"
 
- Let's check the translation of:
- "جعفر ابن محمد (علیہما السلام)"
- -> "Ja'far ibn Muhammad (عليهما السلام)"
+        Let's check the translation of:
+        "جعفر ابن محمد (علیہما السلام)"
+        -> "Ja'far ibn Muhammad (عليهما السلام)"
 
- Let's check the translation of:
- "شیخِ عامری"
- -> "Sheikh al-Amili"
+        Let's check the translation of:
+        "شیخِ عامری"
+        -> "Sheikh al-Amili"
 
- Let's check the translation of:
- "شیخِ عامری اللہ مجلسی"
- -> "Sheikh al-Amili, [Allamah] Majlisi"
+        Let's check the translation of:
+        "شیخِ عامری اللہ مجلسی"
+        -> "Sheikh al-Amili, [Allamah] Majlisi"
 
- Let's check the translation of:
- "صاحبِ محاسن برقی"
- -> "the author of *Al-Mahasin* al-Barqi"
+        Let's check the translation of:
+        "صاحبِ محاسن برقی"
+        -> "the author of *Al-Mahasin* al-Barqi"
 
- Let's check the translation of:
- "صاحبِ مجموع جناب محمد بن یحییٰ العطار رضوان اللہ تعالیٰ علیہ"
- -> "the compiler Janab Muhammad ibn Yahya al-Attar (may Allah be pleased with him)"
+        Let's check the translation of:
+        "صاحبِ مجموع جناب محمد بن یحییٰ العطار رضوان اللہ تعالیٰ علیہ"
+        -> "the compiler Janab Muhammad ibn Yahya al-Attar (may Allah be pleased with him)"
 
- Let's check the translation of:
- "صاحبِ جامع کافی، جامع، جنابِ محمد بن یحییٰ العطار"
- -> "the compiler of *Al-Kafi*, Janab Muhammad ibn Yahya al-Attar"
+        Let's check the translation of:
+        "صاحبِ جامع کافی، جامع، جنابِ محمد بن یحییٰ العطار"
+        -> "the compiler of *Al-Kafi*, Janab Muhammad ibn Yahya al-Attar"
 
- Let's check the translation of:
- "وسائل الشیعہ"
- -> "*Wasa'il al-Shia*"
+        Let's check the translation of:
+        "وسائل الشیعہ"
+        -> "*Wasa'il al-Shia*"
 
- Let's check the translation of:
- "باب الاستحباب، الاستغناء عن الناس"
- -> "Bab al-Istihbab, al-Istighna' 'an al-Nas (The Chapter on the Recommendation of Being Independent of People)"
+        Let's check the translation of:
+        "باب الاستحباب، الاستغناء عن الناس"
+        -> "Bab al-Istihbab, al-Istighna' 'an al-Nas (The Chapter on the Recommendation of Being Independent of People)"
 
- Let's check the translation of:
- "طمع الحوائج منھم"
- -> "طمع الحوائج منھم" (coveting the fulfillment of needs from them)
+        Let's check the translation of:
+        "طمع الحوائج منھم"
+        -> "طمع الحوائج منھم" (coveting the fulfillment of needs from them)
 
- Let's check the translation of:
- "والیاس مما فی ایدیھم، مما فی ایدیھم"
- -> "والیاس مما فی ایدیھم, مما فی ایدیھم" (and despairing of what is in their hands)
+        Let's check the translation of:
+        "والیاس مما فی ایدیھم، مما فی ایدیھم"
+        -> "والیاس مما فی ایدیھم, مما فی ایدیھم" (and despairing of what is in their hands)
 
- Let's check the translation of:
- "الاستغناء عن الناس"
- -> "الاستغناء عن الناس" (being independent of people)
+        Let's check the translation of:
+        "الاستغناء عن الناس"
+        -> "الاستغناء عن الناس" (being independent of people)
 
- Let's check the translation of:
- "قناعت"
- -> "contentment"
+        Let's check the translation of:
+        "قناعت"
+        -> "contentment"
 
- Let's check the translation of:
- "مَرَارَۃُ النَّاسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ اور مَرَارَۃُ الْیَأْسِ"
- -> "وَمَرَارَۃُ الْیَأْسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ" (And the bitterness of despair [of what people have] is better than begging from people)
+        Let's check the translation of:
+        "مَرَارَۃُ النَّاسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ اور مَرَارَۃُ الْیَأْسِ"
+        -> "وَمَرَارَۃُ الْیَأْسِ خَیْرٌ مِّنْ طَلَبِ اِلَی النَّاسِ" (And the bitterness of despair [of what people have] is better than begging from people)
 
- Let's check the translation of:
- "فَإِنَّ الْفَقْرَ فَإِنَّہُ الْفَقْرُ الْحَاضِرْ"
- -> "فَإِنَّہُ الْفَقْرُ الْحَاضِرْ" (for indeed it is present poverty)
+        Let's check the translation of:
+        "فَإِنَّ الْفَقْرَ فَإِنَّہُ الْفَقْرُ الْحَاضِرْ"
+        -> "فَإِنَّہُ الْفَقْرُ الْحَاضِرْ" (for indeed it is present poverty)
 
- Let's check the translation of:
- "فَقْرُ الْحَاضِرْ"
- -> "فَقْرُ الْحَاضِرْ" (present poverty)
+        Let's check the translation of:
+        "فَقْرُ الْحَاضِرْ"
+        -> "فَقْرُ الْحَاضِرْ" (present poverty)
 
- Let's check the translation of:
- "طمع
+        Let's check the translation of:
+        "طمع
 
 ## The Nature of Greed
 
@@ -315,7 +315,7 @@ Look, keep the concept in mind. What is the concept? It is greed. Amir (عليه
 اِنَّ الطَّمَعَ مُوَرِّدٌ غَیْرُ مُصْدِرٍ
 > Reference:
 
-or مُوَرِّدٌ غَیْرُ مَصْدَرْ—it can be read both ways: مُوَرِّدٌ غَیْرُ مُصْدِرْ or مُوَرِّدٌ غَیْرُ مَصْدَرْ. That is, greed is something that will lead you into something, but you will not be able to get out of it. Look at this sentence of Amir (عليه السلام): it will take you inside, but a person cannot get out of it. In other words, what is it like? It is like quicksand; it is like a swamp. Greed is a swamp. You have seen in a swamp, when a person gets stuck in quicksand, what happens in quicksand? The more he thrashes his hands and feet, the deeper he goes. The more he struggles, the more he sinks.
+or مُوَرِّدٌ غَیْرُ مَصْدَرْ—it can be read both ways: مُوَرِّدٌ غَیْرُ مُصْدِرْ or مُوَرِّدٌ غَیْرُ مَصْدَرْ. That is, greed is something that will lead you into something, but you will not be able to get out of it. Look at this sentence of Amir (عليه السلام): it will take you inside, but a person cannot get out of it. In other words, what is it like? It is like quicksand; it is like a swamp. Greed is a swamp. You have seen in a swamp, when a person gets stuck in quicksand, what happens in quicksand? The more he thrashes his hands and feet, the deeper he goes. The more he struggles, the more he sinks. 
 
 That is, its example is the same as the one given by Imam al-Sadiq (عليه السلام) in the hadith about the love of the world, that the one who loves the world, out of greed, what is his example like? It is like a silkworm. There is a silkworm, right? Regarding the silkworm, the Imam (عليه السلام) says that it keeps gathering silk around itself, keeps gathering, keeps gathering, gathers so much that a stage comes when it cannot get out of it at all, cannot get out of it at all, until the Imam (عليه السلام) says:
 
@@ -331,7 +331,7 @@ until it dies of grief. Now, who gathered all that silk? The silkworm gathered i
 خَسِرَ الدُّنْيَا وَالْآخِرَةَ ۚ ذَٰلِكَ هُوَ الْخُسْرَانُ الْمُبِينُ
 > Reference:
 
-He loses both this world and the Hereafter; that is indeed a manifest loss. It is possible that he gathers the world, it is possible he acquires wealth. Well, when we say "wealth," we usually do not mean what people have nowadays. Even if someone gets a little bit, like having two or four flats, he starts considering himself wealthy—that is not called real wealth. Wealth, when we speak of its true concept, is like, for example, the Sultan of Brunei, whose commode is also made of gold. Right? The entire commode, even the bathroom sink is made of gold. Everything is made of gold, everything is built of gold.
+He loses both this world and the Hereafter; that is indeed a manifest loss. It is possible that he gathers the world, it is possible he acquires wealth. Well, when we say "wealth," we usually do not mean what people have nowadays. Even if someone gets a little bit, like having two or four flats, he starts considering himself wealthy—that is not called real wealth. Wealth, when we speak of its true concept, is like, for example, the Sultan of Brunei, whose commode is also made of gold. Right? The entire commode, even the bathroom sink is made of gold. Everything is made of gold, everything is built of gold. 
 
 But Allah has made the system in such a way. Look at Allah's system: you can make it out of gold, but when he eats, he cannot eat gold. Now, what comes out of him will be the same as what comes out of a poor man. That too will be filth, it won't be pure. And in the words of Sayyidna Tawus, quoting the words of the Mawla (عليه السلام) in the hadith:
 
@@ -347,7 +347,7 @@ But Allah has made the system in such a way. Look at Allah's system: you can mak
 
 ### The Humility of Human Existence
 
-Sayyidna Tawus adds another point to this hadith of Amir al-Mu'minin (عليه السلام). There is a testament of Sayyidna Tawus—you know his testament, it is a 400-page testament, yes, 450 pages that he bequeathed to his son. It is a very large testament, it is an entire book, *Kashf al-Mahajjah*. In it, he adds another point that Allah has placed another thing. We have not seen it in the hadith, maybe it is there, we haven't seen it, but what Sayyidna Tawus adds shows that there is another aspect. He says that he is a carrier of filth. That is, he is a carrier of impurity; there is impurity in his stomach that comes out morning and evening. You understand, right? I think the point is clear, isn't it? Impurity morning and evening.
+Sayyidna Tawus adds another point to this hadith of Amir al-Mu'minin (عليه السلام). There is a testament of Sayyidna Tawus—you know his testament, it is a 400-page testament, yes, 450 pages that he bequeathed to his son. It is a very large testament, it is an entire book, *Kashf al-Mahajjah*. In it, he adds another point that Allah has placed another thing. We have not seen it in the hadith, maybe it is there, we haven't seen it, but what Sayyidna Tawus adds shows that there is another aspect. He says that he is a carrier of filth. That is, he is a carrier of impurity; there is impurity in his stomach that comes out morning and evening. You understand, right? I think the point is clear, isn't it? Impurity morning and evening. 
 
 Along with that, Sayyidna Tawus says that he has to clean that impurity with his own hand. Every time he goes to the restroom, he has to do it with his own hands. Now people say that nowadays they use tissue paper—oh, that is even worse! Recite a Salawat for Muhammad (صلى الله عليه وآله وسلم) and the Progeny of Muhammad (صلى الله عليه وآله وسلم):
 
@@ -378,7 +378,7 @@ And the Mawla (عليه السلام) says:
 
 And often it happens that: "Perhaps the drinker of water is choked by it before his thirst is quenched." What an amazing sentence! *Qabla riyyihi*—*riyyah*, meaning *rayyan*, which means the quenching of thirst. His thirst is not yet quenched; he felt thirsty, he drank water, but instead of quenching his thirst, this very thing chokes him and kills him. He dies.
 
-Here we can give an example, and you all have definitely seen this too, surely you have. Many people in the world plan so many things: "We will do this, we will do that," and they work very hard for it, but they die before that thing happens. For example, we saw a man who was building a very big house, a large bungalow, and was having a lot of work done on it. Absolutely everything was the most expensive, whatever it was, it was expensive. So when we went there a few times and visited, we saw him getting the work done. We asked him, "Brother, is your bungalow not ready yet?" He said, "Oh, it's getting done, it's getting done, just a little work is left, a little." It had been going on for so long, a year and a half, two years, the work had been going on for a year and a half or two years. We said, "The bungalow is still not done? Strange." And he said, "No."
+Here we can give an example, and you all have definitely seen this too, surely you have. Many people in the world plan so many things: "We will do this, we will do that," and they work very hard for it, but they die before that thing happens. For example, we saw a man who was building a very big house, a large bungalow, and was having a lot of work done on it. Absolutely everything was the most expensive, whatever it was, it was expensive. So when we went there a few times and visited, we saw him getting the work done. We asked him, "Brother, is your bungalow not ready yet?" He said, "Oh, it's getting done, it's getting done, just a little work is left, a little." It had been going on for so long, a year and a half, two years, the work had been going on for a year and a half or two years. We said, "The bungalow is still not done? Strange." And he said, "No." 
 
 Once, when we met him for the last time, we asked, "By when will it be done?" He just said, "Inshallah next week, Inshallah—sorry, next month, Inshallah, I will shift." We said, "Inshallah Ta'ala." He said Inshallah, and we also said Inshallah. But it was not Allah's will. He passed away before shifting. That is, that person was fixing the fittings for a year and a half or two years. But where he actually needed to get the fittings right, he was not doing it there; he was not thinking about that place. Where he should have been fixing the fittings in the grave, right? He should have been thinking about fixing the fittings of his grave as well. Although this is fine—meaning we do not say that a person should abandon the world, do nothing, not work—he should do it, he should do it, but he should not forget the Hereafter. He should constantly remember the Hereafter.
 
@@ -476,30 +476,30 @@ O Lord! Hasten the reappearance of the Imam of the Time (عليه السلام).
 ## Conclusion and Key Takeaways
 
 - Imam al-Sadiq (عليه السلام) stated that if a person remembers the Ahl al-Bayt or they are mentioned in his presence, and even a single tear the size of a fly's wing falls from his eyes, Allah will forgive all his sins, even if they are as vast as the foam of the sea:
- من ذکرنا اؤ ذکرنا عندہ فخرج عن عینیہ مثل جناح الذباب غفر اللہ لہ ذنوبہ ولو کانت اکثر من زبد البحر
- > Reference:
+  من ذکرنا اؤ ذکرنا عندہ فخرج عن عینیہ مثل جناح الذباب غفر اللہ لہ ذنوبہ ولو کانت اکثر من زبد البحر
+  > Reference:
 
 - The Messenger of Allah (صلى الله عليه وآله وسلم) advised a man to never hold expectations from people, but to place all expectations and hope solely in Allah and His Hujjah (Proof).
 
 - Despairing of Allah's mercy is a major sin and disbelief, but despairing of what is in the hands of people is highly recommended and brings honor to a believer's faith, as Imam al-Sadiq (عليه السلام) stated, ...
- الیاس مما فی ایدی الناس عزّ للمؤمن فی دینہ
- > Reference:
+  الیاس مما فی ایدی الناس عزّ للمؤمن فی دینہ
+  > Reference:
 
 - Zuhd (detachment) does not mean sitting idle at home without working, but rather not boasting when receiving worldly blessings and not despairing when losing them, while continuing to work as commanded by the Quran.
 
 - The Messenger of Allah (صلى الله عليه وآله وسلم) taught that practicing detachment from the world brings Allah's love, and having no expectations of what people possess brings people's love:
- اِزْھَدْ فِی الدُّنْیَا یُحِبُّکَ اللہُ
- > Reference:
- وَازْھَدْ فِیْمَا فِیْ اَیْدِی النَّاسِ یُحِبُّکَ النَّاسُ
- > Reference:
+  اِزْھَدْ فِی الدُّنْیَا یُحِبُّکَ اللہُ
+  > Reference:
+  وَازْھَدْ فِیْمَا فِیْ اَیْدِی النَّاسِ یُحِبُّکَ النَّاسُ
+  > Reference:
 
 - The Messenger of Allah (صلى الله عليه وآله وسلم) warned against greed, stating that it is actual present poverty:
- وَاِیَّاکَ وَالطَّمَعْ فَإِنَّ الْفَقْرَ فَإِنَّہُ الْفَقْرُ الْحَاضِرْ
- > Reference:
+  وَاِیَّاکَ وَالطَّمَعْ فَإِنَّ الْفَقْرَ فَإِنَّہُ الْفَقْرُ الْحَاضِرْ
+  > Reference:
 
 - Amir al-Mu'minin (عليه السلام) described greed as a quicksand or a swamp that draws a person in but does not let them escape:
- اِنَّ الطَّمَعَ مُوَرِّدٌ غَیْرُ مُصْدِرٍ
- > Reference:
+  اِنَّ الطَّمَعَ مُوَرِّدٌ غَیْرُ مُصْدِرٍ
+  > Reference:
 
 - Imam al-Sadiq (عليه السلام) compared a person obsessed with accumulating worldly wealth to a silkworm that wraps itself in its own silk until it dies of grief, leaving its wealth to be divided by others while facing punishment in the hereafter.
 

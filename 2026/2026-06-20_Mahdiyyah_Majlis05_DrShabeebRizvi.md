@@ -2,11 +2,11 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi
-**Venue:** Mahdiyyah, Bandra West
-**Date:** June 20, 2026 | 4th Moharram 1447 AH
-**Series:** Lecture 5 - Moharram 2026
-**YouTube:** [Majlis 5 | Mukhtasar Tareekh-e-Azadaari](https://www.youtube.com/watch?v=j-PQ5bvlvTw)
+**Speaker:** Dr. Shabeeb Rizvi  
+**Venue:** Mahdiyyah, Bandra West  
+**Date:** June 20, 2026 | 4th Moharram 1447 AH  
+**Series:** Lecture 5 - Moharram 2026  
+**YouTube:** [Majlis 5 | Mukhtasar Tareekh-e-Azadaari](https://www.youtube.com/watch?v=j-PQ5bvlvTw)  
 
 ---
 
@@ -14,36 +14,36 @@
 
 - [Excelling in Good Deeds](#excelling-in-good-deeds)
 - [Maytham al-Tammar and the Companions of Amir al-Mu'minin](#maytham-al-tammar-and-the-companions-of-amir-al-muminin)
- - [Sheikh Saduq and the Book 'Ilal al-Shara'i'](#sheikh-saduq-and-the-book-ilal-al-sharai)
+  - [Sheikh Saduq and the Book 'Ilal al-Shara'i'](#sheikh-saduq-and-the-book-ilal-al-sharai)
 - [The Prophecy of Maytham al-Tammar](#the-prophecy-of-maytham-al-tammar)
- - [Fabricated Narrations Regarding Ashura](#fabricated-narrations-regarding-ashura)
+  - [Fabricated Narrations Regarding Ashura](#fabricated-narrations-regarding-ashura)
 - [The Unparalleled Status of Imam Hussain (عليه السلام)](#the-unparalleled-status-of-imam-hussain-عليه-السلام)
- - [The True Identity of Shia Islam](#the-true-identity-of-shia-islam)
+  - [The True Identity of Shia Islam](#the-true-identity-of-shia-islam)
 - [The Prophecy of Jabalah and the Red Sky](#the-prophecy-of-jabalah-and-the-red-sky)
 - [The Majlis as a Court of Inquiry](#the-majlis-as-a-court-of-inquiry)
- - [The Fabrication of Hadiths by the Umayyads](#the-fabrication-of-hadiths-by-the-umayyads)
+  - [The Fabrication of Hadiths by the Umayyads](#the-fabrication-of-hadiths-by-the-umayyads)
 - [Fabricated Hadiths and the Origin of Ashura Fasting](#fabricated-hadiths-and-the-origin-of-ashura-fasting)
 - [The Historical Struggle Between Truth and Falsehood](#the-historical-struggle-between-truth-and-falsehood)
- - [The Reign of Yazid and the Umayyad Dynasty](#the-reign-of-yazid-and-the-umayyad-dynasty)
- - [Oppression Under the Abbasid Dynasty](#oppression-under-the-abbasid-dynasty)
+  - [The Reign of Yazid and the Umayyad Dynasty](#the-reign-of-yazid-and-the-umayyad-dynasty)
+  - [Oppression Under the Abbasid Dynasty](#oppression-under-the-abbasid-dynasty)
 - [The Revival of Azadari Under the Buyids](#the-revival-of-azadari-under-the-buyids)
- - [Historical Evidence from Al-Maqrizi](#historical-evidence-from-al-maqrizi)
+  - [Historical Evidence from Al-Maqrizi](#historical-evidence-from-al-maqrizi)
 - [The Rise and Fall of Azadari in North Africa and the Seljuk Era](#the-rise-and-fall-of-azadari-in-north-africa-and-the-seljuk-era)
- - [The Fall of Aleppo and the Massacre of Shias](#the-fall-of-aleppo-and-the-massacre-of-shias)
+  - [The Fall of Aleppo and the Massacre of Shias](#the-fall-of-aleppo-and-the-massacre-of-shias)
 - [The Definition of Nobility (Al-Majd)](#the-definition-of-nobility-al-majd)
 - [Bearing Debts and Building Noble Character](#bearing-debts-and-building-noble-character)
 - [Amir al-Mu'minin and the Apparent Caliphate](#amir-al-muminin-and-the-apparent-caliphate)
- - [The Struggle Over the Public Treasury](#the-struggle-over-the-public-treasury)
+  - [The Struggle Over the Public Treasury](#the-struggle-over-the-public-treasury)
 - [The Prohibition of Extravagance and False Praise](#the-prohibition-of-extravagance-and-false-praise)
- - [The Rightful Uses of Wealth](#the-rightful-uses-of-wealth)
+  - [The Rightful Uses of Wealth](#the-rightful-uses-of-wealth)
 - [Three Noble Moral Traits](#three-noble-moral-traits)
 - [Hastening Toward Four Things Before Four Others](#hastening-toward-four-things-before-four-others)
- - [Do Not Rely on Others for Your Deeds](#do-not-rely-on-others-for-your-deeds)
+  - [Do Not Rely on Others for Your Deeds](#do-not-rely-on-others-for-your-deeds)
 - [The Sons of Ja'far ibn Abi Talib](#the-sons-of-jafar-ibn-abi-talib)
 - [The Sacrifice of Lady Zaynab's Sons](#the-sacrifice-of-lady-zaynabs-sons)
- - [Preparing for the Battlefield](#preparing-for-the-battlefield)
- - [Martyrdom on the Battlefield](#martyrdom-on-the-battlefield)
- - [The Return to Medina](#the-return-to-medina)
+  - [Preparing for the Battlefield](#preparing-for-the-battlefield)
+  - [Martyrdom on the Battlefield](#martyrdom-on-the-battlefield)
+  - [The Return to Medina](#the-return-to-medina)
 - [Concluding Supplications](#concluding-supplications)
 
 ## Summary
@@ -284,7 +284,7 @@ He would be born with the hatred of Ali, and he would grow up with the hatred of
 
 ## Fabricated Hadiths and the Origin of Ashura Fasting
 
-...has made it. Now, they made it their target to spread this thing across the entire universe, across the entire Islamic world. And that is why they said that this is a day of great joy. On this day, one should fast. Therefore, hadiths were fabricated about the importance of fasting. One should fast; one should fast on the day of Ashura. Hadiths were fabricated about this. Now, all these hadiths that I am presenting to you—analyze them all. If you analyze them, you will find that all their narrators, all the sources, originated from Syria. All of them from there, all the hadiths were fabricated from there. And that is why we have been taught visitations like Ziyarat Ashura, so that Shias recite it regularly and it remains clear to them what the matter is, what the reality is.
+...has made it. Now, they made it their target to spread this thing across the entire universe, across the entire Islamic world. And that is why they said that this is a day of great joy. On this day, one should fast. Therefore, hadiths were fabricated about the importance of fasting. One should fast; one should fast on the day of Ashura. Hadiths were fabricated about this. Now, all these hadiths that I am presenting to you—analyze them all. If you analyze them, you will find that all their narrators, all the sources, originated from Syria. All of them from there, all the hadiths were fabricated from there. And that is why we have been taught visitations like Ziyarat Ashura, so that Shias recite it regularly and it remains clear to them what the matter is, what the reality is. 
 
 What do you recite in Ziyarat Ashura?
 
@@ -470,29 +470,29 @@ Until now, we had been mentioning the martyrdom of the companions; today, after 
 
 ### Preparing for the Battlefield
 
-It is strange and extraordinary that when all the companions were killed and the family of Aqeel was killed, after that, Janab-e-Zaynab began to say to both of her children, "Go and sacrifice yourselves for your maternal uncle." The children said, "Mother, you come with us and ask uncle." Janab-e-Zaynab took both children and stood before Husayn (عليه السلام). She stood silently.
+It is strange and extraordinary that when all the companions were killed and the family of Aqeel was killed, after that, Janab-e-Zaynab began to say to both of her children, "Go and sacrifice yourselves for your maternal uncle." The children said, "Mother, you come with us and ask uncle." Janab-e-Zaynab took both children and stood before Husayn (عليه السلام). She stood silently. 
 
-The Imam asked, "Zaynab, what do you want to say?"
+The Imam asked, "Zaynab, what do you want to say?" 
 
-She said, "Brother, you know what I want to say, and I am sure you will not reject my request. I trust you, you will not reject my request. Brother, please give permission to these two so that they may go and be martyred."
+She said, "Brother, you know what I want to say, and I am sure you will not reject my request. I trust you, you will not reject my request. Brother, please give permission to these two so that they may go and be martyred." 
 
-Husayn (عليه السلام) said, "Zaynab, today is indeed the day of martyrdom." Husayn (عليه السلام) gave permission.
+Husayn (عليه السلام) said, "Zaynab, today is indeed the day of martyrdom." Husayn (عليه السلام) gave permission. 
 
 As soon as he gave permission, there is an extraordinary sentence in the Maqtal—I present it to you—that Janab-e-Zaynab brought both children to the tent and started preparing them herself. And while preparing them, she kept advising and consoling them, "My sons, look, sacrifice yourselves, sacrifice yourselves for your uncle. My sons, look, I know you have been hungry and thirsty for three days, but remember two things. My sons, one is that fight in such a way that the enemy realizes you are the grandsons of Ali ibn Abi Talib (عليه السلام) and the grandsons of Ja'far ibn Abi Talib (عليه السلام). Why should you have to say that we belong to the Wali of Allah? Let the army cry out that they are the grandsons of Ali (عليه السلام). And the second thing to keep in mind, my sons, is that I know you are thirsty. They are children, not very old yet. You are thirsty, my children, but look, do not even let the thought of water enter your minds, do not turn towards the water, do not turn towards the Euphrates. Do not even think of water. Yes, my children, Sakinah is thirsty in the tent, Asghar is thirsty. The children are thirsty." She gave them great advice. Zaynab (عليها السلام) advised them and sent the children off.
 
 ### Martyrdom on the Battlefield
 
-Now, there is an extraordinary sentence in the Maqtal: one brother attacked from the right wing, and the other attacked from the left wing, and they fought in such a way that the Syrian army began to flee here and there. Ibn Sa'd said, "O people, these are the children of Bani Hashim, surround them and kill them! Surround them and kill them!" So the wretched ones surrounded them. They surrounded the children and began to strike them. They did this to such an extent that both children called out, "O uncle! Accept our final salutations."
+Now, there is an extraordinary sentence in the Maqtal: one brother attacked from the right wing, and the other attacked from the left wing, and they fought in such a way that the Syrian army began to flee here and there. Ibn Sa'd said, "O people, these are the children of Bani Hashim, surround them and kill them! Surround them and kill them!" So the wretched ones surrounded them. They surrounded the children and began to strike them. They did this to such an extent that both children called out, "O uncle! Accept our final salutations." 
 
-Husayn (عليه السلام) arrived with his strength of arm, Abul Fadl al-Abbas (عليه السلام). By the time they reached, both children had departed from this world. Husayn (عليه السلام) lifted the body of one, and Abbas (عليه السلام) lifted the body of the other. They brought them and placed them in the tent.
+Husayn (عليه السلام) arrived with his strength of arm, Abul Fadl al-Abbas (عليه السلام). By the time they reached, both children had departed from this world. Husayn (عليه السلام) lifted the body of one, and Abbas (عليه السلام) lifted the body of the other. They brought them and placed them in the tent. 
 
-Then it was said to Zaynab (عليها السلام), "O Lady, the princes have arrived, alas, the princes have arrived." Zaynab was on her prayer mat. She said, "Why did they come? I did not ask them to come."
+Then it was said to Zaynab (عليها السلام), "O Lady, the princes have arrived, alas, the princes have arrived." Zaynab was on her prayer mat. She said, "Why did they come? I did not ask them to come." 
 
-They said, "O Lady, please come and see."
+They said, "O Lady, please come and see." 
 
-Now when Zaynab looked, she performed a prostration of gratitude. "O Lord, praise be to You, *taqabbal minni* (accept from me), O Lord, accept my sacrifice."
+Now when Zaynab looked, she performed a prostration of gratitude. "O Lord, praise be to You, *taqabbal minni* (accept from me), O Lord, accept my sacrifice." 
 
-It is written that Zaynab did not shed tears for her beloved ones. O Ali! Even on the eleventh of Muharram, when Zaynab was leaving Karbala, she did not weep for her children. She wept for Husayn (عليه السلام). When she reached Kufah, even then she did not weep for her children. When she arrived in Syria, even then she did not.
+It is written that Zaynab did not shed tears for her beloved ones. O Ali! Even on the eleventh of Muharram, when Zaynab was leaving Karbala, she did not weep for her children. She wept for Husayn (عليه السلام). When she reached Kufah, even then she did not weep for her children. When she arrived in Syria, even then she did not. 
 
 ### The Return to Medina
 
@@ -511,9 +511,9 @@ O Lord, O Lord, hasten the reappearance of the Imam of the Time (عليه الس
 ## Conclusion and Key Takeaways
 
 - The Quranic verse "فاستبقوا الخیرات" (Quran 2:148 / 5:48) commands people to race with one another in good deeds, and the Ahl al-Bayt (عليهم السلام) are the ultimate source of all goodness, as stated in the narration:
- نحن اصل کل خیر
+  نحن اصل کل خیر
 
- > **Reference:** [Al-Kaafi](https://hadith.ahlebaytrepo.com/01348/h/119033) (Shaikh Kulaini (a.r.)), vol. 8, p. 242–243, H. 15132
+  > **Reference:** [Al-Kaafi](https://hadith.ahlebaytrepo.com/01348/h/119033) (Shaikh Kulaini (a.r.)), vol. 8, p. 242–243, H. 15132
 - Imam Husayn (عليه السلام) initiated his uprising against Yazid because he saw that Islam was being completely ruined and faced total annihilation.
 - Amir al-Mu'minin (عليه السلام) taught the knowledge of future tribulations and deaths (*'Ilm al-Bala' wal-Manaya*) to his close companions Maitham al-Tammar, Rushayd al-Hajari, and Habib ibn Mazahir.
 - Maitham al-Tammar prophesied, based on the teachings of Amir al-Mu'minin (عليه السلام), that the Ummah would kill the grandson of the Prophet (صلى الله عليه وآله وسلم) on the 10th of Muharram and celebrate it as a day of blessing.
@@ -522,7 +522,7 @@ O Lord, O Lord, hasten the reappearance of the Imam of the Time (عليه الس
 - The mourning ceremonies (*Azadari*) for Imam Husayn (عليه السلام) were established as a "court of inquiry" by Janab-e-Zaynab in the courts of Ibn Ziyad and Yazid to question who killed the Imam and why.
 - Mourning for Imam Husayn (عليه السلام) faced severe state suppression for nearly 350 years (from 61 AH to 400 AH) until dynasties like the Al-Buyah and the Idrisids helped establish and spread it.
 - When asked by Amir al-Mu'minin (عليه السلام) about the meaning of nobility (*mabd/majd*), Imam Hasan (عليه السلام) defined it as:
- حمل المغارم و ابتناء المکارم
+  حمل المغارم و ابتناء المکارم
 
- > **Reference:** [Maani al-Akhbar](https://hadith.ahlebaytrepo.com/01560/h/372233) (Shaikh Saduq (a.r.)), vol. 1, p. 401, H. 833 · [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269266) (Allamah Majlisi (a.r.)), vol. 75, pp. 101–102, H. 48351
- which means bearing the burdens and debts of others and building noble moral character.
+  > **Reference:** [Maani al-Akhbar](https://hadith.ahlebaytrepo.com/01560/h/372233) (Shaikh Saduq (a.r.)), vol. 1, p. 401, H. 833 · [Behaar al-Anwaar](https://hadith.ahlebaytrepo.com/01407/h/269266) (Allamah Majlisi (a.r.)), vol. 75, pp. 101–102, H. 48351
+  which means bearing the burdens and debts of others and building noble moral character.

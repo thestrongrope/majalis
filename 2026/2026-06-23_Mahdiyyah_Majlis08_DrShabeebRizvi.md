@@ -2,39 +2,39 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi
-**Venue:** Mahdiyyah, Bandra West
-**Date:** June 23, 2026 | 7th Moharram 1447 AH
-**Series:** Lecture 8 - Moharram 2026
-**YouTube:** [Majlis 7 | Noor](https://www.youtube.com/watch?v=_sPhSu0WrvA)
+**Speaker:** Dr. Shabeeb Rizvi  
+**Venue:** Mahdiyyah, Bandra West  
+**Date:** June 23, 2026 | 7th Moharram 1447 AH  
+**Series:** Lecture 8 - Moharram 2026  
+**YouTube:** [Majlis 7 | Noor](https://www.youtube.com/watch?v=_sPhSu0WrvA)  
 
 ---
 
 ## Table of Contents
 
 - [The Concept of Good Deeds and Ahl al-Bayt (علیہم السلام)](#the-concept-of-good-deeds-and-ahl-al-bayt-علیہم-السلام)
- - [Defining the Death of Ignorance](#defining-the-death-of-ignorance)
+  - [Defining the Death of Ignorance](#defining-the-death-of-ignorance)
 - [The Significance of Ziyarat al-Jamiah al-Kabirah](#the-significance-of-ziyarat-al-jamiah-al-kabirah)
 - [The Status of the Imams (علیہم السلام)](#the-status-of-the-imams-علیہم-السلام)
 - [The Imam as the Pillar of Existence](#the-imam-as-the-pillar-of-existence)
 - [The Necessity of a Living Imam](#the-necessity-of-a-living-imam)
 - [Protection From Satan and His Hosts](#protection-from-satan-and-his-hosts)
- - [The True Meaning of Remembrance](#the-true-meaning-of-remembrance)
- - [The Spiritual Impact of Food](#the-spiritual-impact-of-food)
- - [Weeping Out of the Fear of Allah](#weeping-out-of-the-fear-of-allah)
+  - [The True Meaning of Remembrance](#the-true-meaning-of-remembrance)
+  - [The Spiritual Impact of Food](#the-spiritual-impact-of-food)
+  - [Weeping Out of the Fear of Allah](#weeping-out-of-the-fear-of-allah)
 - [The Prayer of Imam Zayn al-Abidin and the Importance of Istighfar](#the-prayer-of-imam-zayn-al-abidin-and-the-importance-of-istighfar)
 - [Prophet Noah and His Nation](#prophet-noah-and-his-nation)
- - [The Quranic Benefits of Istighfar](#the-quranic-benefits-of-istighfar)
+  - [The Quranic Benefits of Istighfar](#the-quranic-benefits-of-istighfar)
 - [Drawing Close to Allah and the Imam through Ziyarah](#drawing-close-to-allah-and-the-imam-through-ziyarah)
- - [The Spiritual Reality of Ziyarah](#the-spiritual-reality-of-ziyarah)
+  - [The Spiritual Reality of Ziyarah](#the-spiritual-reality-of-ziyarah)
 - [The Secret of Waking Up Early](#the-secret-of-waking-up-early)
- - [The Daily Schedule of Muhaddith al-Nuri](#the-daily-schedule-of-muhaddith-al-nuri)
+  - [The Daily Schedule of Muhaddith al-Nuri](#the-daily-schedule-of-muhaddith-al-nuri)
 - [Three Groups Exempt from Punishment on Judgment Day](#three-groups-exempt-from-punishment-on-judgment-day)
 - [The Command to Remember the Ahl al-Bayt](#the-command-to-remember-the-ahl-al-bayt)
 - [Defining Al-Ma'ruf and Al-Munkar](#defining-al-maruf-and-al-munkar)
- - [The Meaning of Al-Na'im](#the-meaning-of-al-naim)
+  - [The Meaning of Al-Na'im](#the-meaning-of-al-naim)
 - [The Tragedy of the Ahl al-Bayt](#the-tragedy-of-the-ahl-al-bayt)
- - [The Martyrdom of Ali al-Akbar](#the-martyrdom-of-ali-al-akbar)
+  - [The Martyrdom of Ali al-Akbar](#the-martyrdom-of-ali-al-akbar)
 - [Concluding Supplications](#concluding-supplications)
 
 ## Summary
@@ -231,17 +231,17 @@ We are those through whom Allah holds back the sky from falling upon the earth, 
 
 ## The Imam as the Pillar of Existence
 
-Through us, Allah does not let the heavens fall upon the earth, meaning He does not destroy it, He does not end it. وَبِنَا یُمْسِکُ الْاَرْضَ اَنْ تَمِیْدَ بِاَہْلِہَا And because of us, Allah prevents the earth from shaking its inhabitants, so that the earth does not destroy them through earthquakes. Why? Because Ali ibn Abi Talib (عليه السلام) is Abu Turab. Wah wah! He is Abu Turab.
+Through us, Allah does not let the heavens fall upon the earth, meaning He does not destroy it, He does not end it. وَبِنَا یُمْسِکُ الْاَرْضَ اَنْ تَمِیْدَ بِاَہْلِہَا And because of us, Allah prevents the earth from shaking its inhabitants, so that the earth does not destroy them through earthquakes. Why? Because Ali ibn Abi Talib (عليه السلام) is Abu Turab. Wah wah! He is Abu Turab. 
 
-That is why when you read the Quran:
+That is why when you read the Quran: 
 
 اِذَا زُلْزِلَتِ الْاَرْضُ زِلْزَالَہَا۔ وَاَخْرَجَتِ الْاَرْضُ اَثْقَالَہَا۔ وَقَالَ الْاِنْسَانُ مَا لَہَا۔ یَوْمَئِذٍ تُحَدِّثُ اَخْبَارَہَا۔ بِاَنَّ رَبَّکَ اَوْحٰی لَہَا۔
 
 > **Reference:** Quran, Surah al-Zalzalah 99:1–5
 
-On that day, Amir al-Mu'minin (عليه السلام) will address it. Who is meant by "man" (al-insan) in this Surah? Ali ibn Abi Talib (عليه السلام). What will the Master say? مَا لَہَا "What is wrong with it?" Ali (عليه السلام) will simply touch the earth, and the earthquake will stop. It is completely under the control of Ali ibn Abi Talib (عليه السلام).
+On that day, Amir al-Mu'minin (عليه السلام) will address it. Who is meant by "man" (al-insan) in this Surah? Ali ibn Abi Talib (عليه السلام). What will the Master say? مَا لَہَا "What is wrong with it?" Ali (عليه السلام) will simply touch the earth, and the earthquake will stop. It is completely under the control of Ali ibn Abi Talib (عليه السلام). 
 
-So the Imam says, وَبِنَا یُنْزِلُ الْغَیْثَ "Through us, Allah sends down the rain." Through us, Allah sends down mercy; through us, Allah sends down blessings. And if we were not there, the entire earth with its inhabitants would be annihilated. If there were no Imam of the time even for a single moment:
+So the Imam says, وَبِنَا یُنْزِلُ الْغَیْثَ "Through us, Allah sends down the rain." Through us, Allah sends down mercy; through us, Allah sends down blessings. And if we were not there, the entire earth with its inhabitants would be annihilated. If there were no Imam of the time even for a single moment: 
 
 لَوْلَا الْحُجَّۃُ لَسَاخَتِ الْاَرْضُ بِاَہْلِہَا۔
 
@@ -249,35 +249,35 @@ So the Imam says, وَبِنَا یُنْزِلُ الْغَیْثَ "Through us
 
 ## The Necessity of a Living Imam
 
-Now, if someone has such an Imam, they can say, "Yes, we also have an Imam." These are our Imams. Wah! Is it clear?
+Now, if someone has such an Imam, they can say, "Yes, we also have an Imam." These are our Imams. Wah! Is it clear? 
 
-That is, a person from a false sect translated *Kitab al-Hujjah* into English—*Kitab al-Hujjah* of *Al-Kafi*. The entire book is a proof of the Imam's Imamate, from which we are reading the hadith. *Kitab al-Hujjah*. So, their leader asked, "What is this translation you have done?" It was translated into English, in the UK, because their center is in the UK. So their leader asked, "What is this translation you have done? Do you not know that this is a Twelver (Ithna Ashari) book, and we are followers of six Imams? What is this translation you have done?" Do you know what he replied? The person who was responsible for the translation said, "I used the hadiths of these Imams to prove your Imamate." For the sixth... the one who passed away just a few days ago, to prove his Imamate. Did you notice?
+That is, a person from a false sect translated *Kitab al-Hujjah* into English—*Kitab al-Hujjah* of *Al-Kafi*. The entire book is a proof of the Imam's Imamate, from which we are reading the hadith. *Kitab al-Hujjah*. So, their leader asked, "What is this translation you have done?" It was translated into English, in the UK, because their center is in the UK. So their leader asked, "What is this translation you have done? Do you not know that this is a Twelver (Ithna Ashari) book, and we are followers of six Imams? What is this translation you have done?" Do you know what he replied? The person who was responsible for the translation said, "I used the hadiths of these Imams to prove your Imamate." For the sixth... the one who passed away just a few days ago, to prove his Imamate. Did you notice? 
 
-So, when is Imamate proven? It is proven when all these characteristics are found. If these characteristics are not found, then how can he be an Imam?
+So, when is Imamate proven? It is proven when all these characteristics are found. If these characteristics are not found, then how can he be an Imam? 
 
-And after that, the Imam says:
+And after that, the Imam says: 
 
 لَمْ تَخْلُ الْاَرْضُ مُنْذُ خَلَقَ اللہُ الْحُجَّۃَ لِلّٰہِ فِیْہَا ظَاہِرٌ اَوْ مَشْہُوْرٌ
 
 > **Reference:** [Al-Amaali](https://hadith.ahlebaytrepo.com/02560/h/439629) (Shaikh Saduq (a.r.), d. 381 AH), Majlis 34, vol. 1, p. 186, H. 278 — Imam Zayn al-Abideen (عليه السلام) via al-Aamash
 
-meaning the earth can never be empty of the Proof of Allah, whether this Proof is manifest or hidden. And until the Day of Judgment, one of these twelve Imams will always remain alive. وَلَوْلَا ذٰلِکَ And if this Imam were not there—meaning the infallible Imam—لَمْ یُعْبَدِ اللہُ Allah could not be worshipped; the worship of Allah would be impossible.
+meaning the earth can never be empty of the Proof of Allah, whether this Proof is manifest or hidden. And until the Day of Judgment, one of these twelve Imams will always remain alive. وَلَوْلَا ذٰلِکَ And if this Imam were not there—meaning the infallible Imam—لَمْ یُعْبَدِ اللہُ Allah could not be worshipped; the worship of Allah would be impossible. 
 
 When the Imam said this, the narrator asked, "O Master! But if the Imam is hidden, what is the benefit of such an Imam?" When the Imam is hidden, the Imam replied, "People will benefit from his occultation just as they benefit from the sun when it is hidden behind the clouds." Recite a Salawat for Muhammad and the Progeny of Muhammad (صلى الله عليه وآله وسلم). اللھم صل علی محمد وآل محمد وعجل فرجھم۔
 
 ## Protection From Satan and His Hosts
 
-So, I have briefly presented this to you because it is very important that we recognize our Imams. Actually look at these narrations; every single sentence that you read requires a lot of explanation and detailed discussion. But anyway, now is not the time for that, so we will stop here and then move on to the hadith we were mentioning.
+So, I have briefly presented this to you because it is very important that we recognize our Imams. Actually look at these narrations; every single sentence that you read requires a lot of explanation and detailed discussion. But anyway, now is not the time for that, so we will stop here and then move on to the hadith we were mentioning. 
 
-The Prophet (صلى الله عليه وآله وسلم) said: ثَلَاثَۃٌ "Three individuals," مَعْصُوْمُوْنَ مِنْ اِبْلِیْسَ وَجُنُوْدِہٖ "are protected from Iblis and his hosts." These three people will always remain safe from Iblis and his army. That is, Iblis will have no effect on them. No matter how much Iblis and his devils whisper, they cannot do anything. Who are these three people? How are they protected from the whispering of Iblis? The Imam said, the first thing is: اَلذَّاکِرُوْنَ لِلّٰہِ "Those who remember Allah." Always remember Allah.
+The Prophet (صلى الله عليه وآله وسلم) said: ثَلَاثَۃٌ "Three individuals," مَعْصُوْمُوْنَ مِنْ اِبْلِیْسَ وَجُنُوْدِہٖ "are protected from Iblis and his hosts." These three people will always remain safe from Iblis and his army. That is, Iblis will have no effect on them. No matter how much Iblis and his devils whisper, they cannot do anything. Who are these three people? How are they protected from the whispering of Iblis? The Imam said, the first thing is: اَلذَّاکِرُوْنَ لِلّٰہِ "Those who remember Allah." Always remember Allah. 
 
-The command of the Quran is:
+The command of the Quran is: 
 
 وَاذْکُرُوا اللہَ ذِکْرًا کَثِیْرًا وَسَبِّحُوْہُ بُکْرَۃً وَاَصِیْلًا
 
 > **Reference:** Quran, Surah al-Ahzab 33:41–42
 
-Remember Allah as much as possible.
+Remember Allah as much as possible. 
 
 وَاذْکُرُوا اللہَ ذِکْرًا کَثِیْرًا وَسَبِّحُوْہُ بُکْرَۃً وَاَصِیْلًا
 
@@ -287,41 +287,41 @@ And glorify Him morning and evening.
 
 ### The True Meaning of Remembrance
 
-What did the Imam say regarding this verse? Would you like to hear the hadith? What an amazing hadith. The Imam says that the most difficult duty Allah has placed upon His servants is the abundant remembrance of Allah. The most difficult duty—meaning remembrance, to remember. To remember Allah is the most... the Imam says: مِنْ اَشَدِّ الْفَرَائِضِ "Among the most difficult obligations," the hardest duty, and what is that? Remembering Allah.
+What did the Imam say regarding this verse? Would you like to hear the hadith? What an amazing hadith. The Imam says that the most difficult duty Allah has placed upon His servants is the abundant remembrance of Allah. The most difficult duty—meaning remembrance, to remember. To remember Allah is the most... the Imam says: مِنْ اَشَدِّ الْفَرَائِضِ "Among the most difficult obligations," the hardest duty, and what is that? Remembering Allah. 
 
-Then the Imam says:
+Then the Imam says: 
 
 لَا اَعْنِیْ سُبْحَانَ اللہِ وَالْحَمْدُ لِلّٰہِ وَلَا اِلٰہَ اِلَّا اللہُ وَاللہُ اَکْبَرُ
 
 > **Reference:** [Al-Waafi](https://hadith.ahlebaytrepo.com/01361/h/122370) (Allamah Fayd Kaashaani (a.r.), d. 1091 AH), vol. 4, p. 322, H. 2263 — Imam al-Sadiq (عليه السلام), from Al-Kaafi, Kitab al-Duaa
 
-"I do not mean saying *Subhan Allah*, *Alhamdulillah*, *La ilaha illa Allah*, and *Allahu Akbar*." This is not what I mean. وَاِنْ کَانَ مِنْ ذٰلِکَ "Although that is also part of it." Although that is also the remembrance of Allah, there is no denying that; it is indeed remembrance, it is the remembrance of Allah, remembering Allah. Saying *Subhan Allah*, *Subhan Allah*—that is also there. No one denies it.
+"I do not mean saying *Subhan Allah*, *Alhamdulillah*, *La ilaha illa Allah*, and *Allahu Akbar*." This is not what I mean. وَاِنْ کَانَ مِنْ ذٰلِکَ "Although that is also part of it." Although that is also the remembrance of Allah, there is no denying that; it is indeed remembrance, it is the remembrance of Allah, remembering Allah. Saying *Subhan Allah*, *Subhan Allah*—that is also there. No one denies it. 
 
 The Imam says, it is not that it isn't, but my meaning is, I want to say that whenever any action comes before you, whenever anything comes before you, see whether this thing is allowed by Allah or not allowed. If Allah has allowed it, do it, and if Allah has not allowed it, abstain from it. This is the most difficult task. The Imam says it is the most difficult: to look at every action and think whether this thing is allowed by Allah or not.
 
 ### The Spiritual Impact of Food
 
-Therefore, if something comes before you to eat, if someone brings food, see whether this food is allowed or not. First check who its mother is, who its father is (i.e., its origin/source). After that, eat it.
+Therefore, if something comes before you to eat, if someone brings food, see whether this food is allowed or not. First check who its mother is, who its father is (i.e., its origin/source). After that, eat it. 
 
-Because a very great scholar, Mirza Mehdi Isfahani (رضوان الله تعالى عليه), wrote a very wonderful sentence in his book. He wrote that the food we eat becomes the cause of the transformation of our *tinat* (disposition). Even if one's *tinat* is of *Illiyyin* (the highest level), a good *tinat*, but if, for example, a person is eating food that is haram, eating food that is impure (najis)—it is impure, it is haram—what does it do? It can cause a change in one's *tinat*.
+Because a very great scholar, Mirza Mehdi Isfahani (رضوان الله تعالى عليه), wrote a very wonderful sentence in his book. He wrote that the food we eat becomes the cause of the transformation of our *tinat* (disposition). Even if one's *tinat* is of *Illiyyin* (the highest level), a good *tinat*, but if, for example, a person is eating food that is haram, eating food that is impure (najis)—it is impure, it is haram—what does it do? It can cause a change in one's *tinat*. 
 
-The reverse is also true, the opposite. What is the opposite? If you are eating *tabarruk* (blessed food) from the table of Imam al-Husayn (عليه السلام), from the table of Imam al-Rida (عليه السلام), from the tables of the different Imams, then this can positively shape a person's *tinat*.
+The reverse is also true, the opposite. What is the opposite? If you are eating *tabarruk* (blessed food) from the table of Imam al-Husayn (عليه السلام), from the table of Imam al-Rida (عليه السلام), from the tables of the different Imams, then this can positively shape a person's *tinat*. 
 
-Our respected teacher, a great scholar and servant of the Hujjah, the late (رحمة الله عليه), used to say that whenever someone gave him *tabarruk* from a Majlis—meaning money, a gift, they would give it as a gift—he would bring that gift and tell his family to prepare food using only that. Using the money from that gift. He would say, "Make food with this." His wife asked, "Why? Why is there so much insistence on making food with this?"
+Our respected teacher, a great scholar and servant of the Hujjah, the late (رحمة الله عليه), used to say that whenever someone gave him *tabarruk* from a Majlis—meaning money, a gift, they would give it as a gift—he would bring that gift and tell his family to prepare food using only that. Using the money from that gift. He would say, "Make food with this." His wife asked, "Why? Why is there so much insistence on making food with this?" 
 
-He replied, "This is the *tabarruk* of the Majlis of Sayyid al-Shuhada (عليه السلام); it is a gift. When I eat this, it will become part of my flesh, and it will protect me from the squeeze of the grave (*fishar al-qabr*), because this earth does not have the power to squeeze the flesh that was built from the remembrance of Husayn."
+He replied, "This is the *tabarruk* of the Majlis of Sayyid al-Shuhada (عليه السلام); it is a gift. When I eat this, it will become part of my flesh, and it will protect me from the squeeze of the grave (*fishar al-qabr*), because this earth does not have the power to squeeze the flesh that was built from the remembrance of Husayn." 
 
-Slogan of Haidari: Ya Ali! Ya Ali! Ya Ali! Ya Ali! Ya Ali!
+Slogan of Haidari: Ya Ali! Ya Ali! Ya Ali! Ya Ali! Ya Ali! 
 
 So, this is a very important thing: remembering Allah.
 
 ### Weeping Out of the Fear of Allah
 
-The second thing is: اَلْبَاکُوْنَ مِنْ خَشْیَۃِ اللہ "Those who weep out of the fear of Allah." Weeping out of the fear of Allah.
+The second thing is: اَلْبَاکُوْنَ مِنْ خَشْیَۃِ اللہ "Those who weep out of the fear of Allah." Weeping out of the fear of Allah. 
 
-Allah's... meaning, read Dua Kumayl. Understand the meaning of Dua Kumayl. And ponder over it, weep, cry. The words of Dua Kumayl are amazing. The words of Dua Sabah are amazing—read Dua Sabah. Read the supplications of the Ahl al-Bayt (عليهم السلام). Read the *Munajat Khams 'Ashar* (The Fifteen Whispered Prayers)—read them. And read them and weep, cry, see what amazing words are in them.
+Allah's... meaning, read Dua Kumayl. Understand the meaning of Dua Kumayl. And ponder over it, weep, cry. The words of Dua Kumayl are amazing. The words of Dua Sabah are amazing—read Dua Sabah. Read the supplications of the Ahl al-Bayt (عليهم السلام). Read the *Munajat Khams 'Ashar* (The Fifteen Whispered Prayers)—read them. And read them and weep, cry, see what amazing words are in them. 
 
-How the Master of the Universe (Amir al-Mu'minin) expressed it: "O Lord! Even if You cast me into Hell, and You leave me there with the ability to speak—if You leave me speaking after casting me into Hell—I will tell the people of Hell that I loved You, yet You still cast me into Hell. And from there I will cry out, from there I will call upon You: یا ولی المومنین- یا آمال العارفین، یا غیاث المستغیثین، یا حبیب قلوب الصادقین، و یا الٰہ العالمین۔ I will call out from Hell."
+How the Master of the Universe (Amir al-Mu'minin) expressed it: "O Lord! Even if You cast me into Hell, and You leave me there with the ability to speak—if You leave me speaking after casting me into Hell—I will tell the people of Hell that I loved You, yet You still cast me into Hell. And from there I will cry out, from there I will call upon You: یا ولی المومنین- یا آمال العارفین، یا غیاث المستغیثین، یا حبیب قلوب الصادقین، و یا الٰہ العالمین۔ I will call out from Hell." 
 
 Look at these amazing sentences of Dua Kumayl.
 
@@ -489,7 +489,7 @@ Always mentioning the Ahl al-Bayt (عليهم السلام). Why not mention som
 
 Look, there is a duty upon every Muslim: *Amr bil-Ma'ruf* (enjoining good) and *Nahi 'anil-Munkar* (forbidding evil), right? Is there anyone who would deny it? No. Now, we present a narration from *Al-Ikhtisas*, which Sheikh al-Mufid has narrated, and Allamah Majlisi has narrated this Hadith in *Bihar al-Anwar*, Volume 10.
 
-In *Bihar al-Anwar*, Volume 10, page number 208, Allamah Majlisi narrates this Hadith. Recite a Salawat, let us share the belief.
+In *Bihar al-Anwar*, Volume 10, page number 208, Allamah Majlisi narrates this Hadith. Recite a Salawat, let us share the belief. 
 
 اللهم صل على محمد وآل محمد وعجل فرجهم ولعن اعدائهم اجمعين
 
@@ -505,7 +505,7 @@ Who said:
 
 So everyone always makes claims that ...
 
-They used to say, "Would I have perished? If Ali had not been there, I would have perished." He said it 108 times: "If Ali had not been there, I would have perished." But, yes, this is also just like that.
+They used to say, "Would I have perished? If Ali had not been there, I would have perished." He said it 108 times: "If Ali had not been there, I would have perished." But, yes, this is also just like that. 
 
 Now he came to the Imam. After coming, he asked many questions, he asked many questions. Among them, he asked one question: "May I be sacrificed for you" (جعلت فداك), meaning, may my life be sacrificed for you. Obviously, it was only from the tongue. Right? Only from the tongue, because if it were a sacrifice of life, brother, you would say, "No, I believe in your grandfather," that is sacrifice, right? Wow. Otherwise, he just said with his tongue, "May I be sacrificed for you." But anyway, "May I be sacrificed for you, my life be sacrificed for you." "Regarding enjoining what is good" (من الأمر بالمعروف). What is *Ma'ruf* (good)? We say *Amr bil-Ma'ruf*, right? Generally, what do we teach children? And that is also correct, not wrong. Inviting towards goodness, goodness—that is how we translate it: inviting towards goodness.
 
@@ -633,9 +633,9 @@ Her face was shining brighter than the sun, weeping and beating herself. "O my g
 
 ## Concluding Supplications
 
-O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). O Lord, hasten the reappearance of the avenger of the blood of Hussain (عليه السلام). Include us among his helpers and companions. Relieve the difficulties of those who are distressed. Help those who are in debt to pay off their debts. Grant pious and righteous children to those who are childless. Grant complete and speedy recovery to those who are sick. Return those who are away from their homeland safely.
+O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). O Lord, hasten the reappearance of the Imam of our Time (عليه السلام). O Lord, hasten the reappearance of the avenger of the blood of Hussain (عليه السلام). Include us among his helpers and companions. Relieve the difficulties of those who are distressed. Help those who are in debt to pay off their debts. Grant pious and righteous children to those who are childless. Grant complete and speedy recovery to those who are sick. Return those who are away from their homeland safely. 
 
-O Lord, protect the lives, wealth, honor, and dignity of the Shias of Haider-e-Karrar wherever they are in the world. Protect our eminent scholars and great Maraji'. Protect the holy shrines and sacred places. Protect those who are protecting them. Especially protect Janab-e-Zainab, the shrine of Janab-e-Zainab.
+O Lord, protect the lives, wealth, honor, and dignity of the Shias of Haider-e-Karrar wherever they are in the world. Protect our eminent scholars and great Maraji'. Protect the holy shrines and sacred places. Protect those who are protecting them. Especially protect Janab-e-Zainab, the shrine of Janab-e-Zainab. 
 
 O Lord, bless us with the visitation of Muhammad (صلى الله عليه وآله وسلم) and the progeny of Muhammad (صلى الله عليه وآله وسلم) in this world, and with the intercession of Muhammad (صلى الله عليه وآله وسلم) and the progeny of Muhammad (صلى الله عليه وآله وسلم) in the Hereafter. Accept this humble mourning of ours. And the mourning of Hussain.
 

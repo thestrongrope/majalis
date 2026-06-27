@@ -2,10 +2,10 @@
 
 ## Lecture Details
 
-**Speaker:** Dr. Shabeeb Rizvi
-**Venue:** Yari Road (Tanveer Devji)
-**Date:** June 17, 2026 | 1st Moharram 1447 AH
-**Series:** Lecture 1 - Moharram 2026
+**Speaker:** Dr. Shabeeb Rizvi  
+**Venue:** Yari Road (Tanveer Devji)  
+**Date:** June 17, 2026 | 1st Moharram 1447 AH  
+**Series:** Lecture 1 - Moharram 2026  
 
 ---
 
@@ -15,16 +15,16 @@
 - [The Merit of Remembering the Ahl al-Bayt](#the-merit-of-remembering-the-ahl-al-bayt)
 - [Gratitude and the Value of Life](#gratitude-and-the-value-of-life)
 - [The Advice of the Prophet (صلى الله عليه وآله)](#the-advice-of-the-prophet-صلى-الله-عليه-وآله)
- - [The Five Advices](#the-five-advices)
+  - [The Five Advices](#the-five-advices)
 - [Understanding Despair and Divine Mercy](#understanding-despair-and-divine-mercy)
 - [Patience and Gratitude in Adversity](#patience-and-gratitude-in-adversity)
 - [Trusting Allah Over Time](#trusting-allah-over-time)
 - [The Character of the Ahl al-Bayt](#the-character-of-the-ahl-al-bayt)
- - [The Confrontation at Dar-ul-Imara](#the-confrontation-at-dar-ul-imara)
+  - [The Confrontation at Dar-ul-Imara](#the-confrontation-at-dar-ul-imara)
 - [Supplications for the Reappearance and the Community](#supplications-for-the-reappearance-and-the-community)
 - [Noha Recitation](#noha-recitation)
 - [Salutations and Final Prayers](#salutations-and-final-prayers)
- - [Dua al-Faraj](#dua-al-faraj)
+  - [Dua al-Faraj](#dua-al-faraj)
 
 ## Summary
 
@@ -152,7 +152,7 @@ And what have you...
 
 The verses of the Qur'an are not weak; they are authentic in terms of transmission. Is it clear to you or not?
 
-The Qur'an says:
+The Qur'an says: 
 
 >فَيَوْمَئِذٍ لَّا يُسْأَلُ عَن ذَنبِهِ إِنسٌ وَلَا جَانٌّ
 
@@ -160,7 +160,7 @@ However, in its exegesis, the Imam (عليه السلام) states that there was
 
 The narrator then asked, "But in the codex (Mus'haf) we see today, this 'مِنْكُمْ' is not present." The Imam (عليه السلام) replied, "Ibn Arwa had it deleted." Ibn Arwa, meaning Uthman (لعنة الله عليه), the right hand of Abu Bakr. Ibn Arwa—he is called Ibn Arwa—he, in any case...
 
-So, this is how much reward there is for these assemblies (Majalis). These are the assemblies held for the sake of Sayyid al-Shuhada (عليه السلام), in which virtues, spiritual knowledge, and tragedies are discussed. Regarding these assemblies, the Proof of Allah (Hujjatullah) says, "I love them." Therefore, understand the value of this blessing; what a grand blessing it is! Indeed, Amir al-Mu'minin (عليه السلام) says:
+So, this is how much reward there is for these assemblies (Majalis). These are the assemblies held for the sake of Sayyid al-Shuhada (عليه السلام), in which virtues, spiritual knowledge, and tragedies are discussed. Regarding these assemblies, the Proof of Allah (Hujjatullah) says, "I love them." Therefore, understand the value of this blessing; what a grand blessing it is! Indeed, Amir al-Mu'minin (عليه السلام) says: 
 
 >إِنَّمَا يُعْرَفُ قَدْرُ النِّعَمِ بِمُقَاسَاةِ ضِدِّهَا
 
@@ -170,11 +170,11 @@ The value of any blessing is only realized when you experience its opposite. Whe
 
 So, if you want to know the value of any blessing, you look at its—this is one aspect.
 
-The second aspect is that you look at others, the non-Shi'as, and then you will understand what they have. They also have two extremes—we do not need to go into those details now, as that is not our topic—but even a brief look at what lies between them will make you understand what it is. They have nothing; nothing at all. Either they are totally astray, behaving exactly like idolaters, or they are at the other extreme, completely dry, with nothing else but saying, "Just pray, and that's it; nothing else. Pray and fast." Rather, they have no goal, no purpose in life, no aim or meaning. And that is why among them... you will see that this is very important.
+The second aspect is that you look at others, the non-Shi'as, and then you will understand what they have. They also have two extremes—we do not need to go into those details now, as that is not our topic—but even a brief look at what lies between them will make you understand what it is. They have nothing; nothing at all. Either they are totally astray, behaving exactly like idolaters, or they are at the other extreme, completely dry, with nothing else but saying, "Just pray, and that's it; nothing else. Pray and fast." Rather, they have no goal, no purpose in life, no aim or meaning. And that is why among them... you will see that this is very important. 
 
 ## Gratitude and the Value of Life
 
-Value these blessings that Allah has bestowed upon you very highly. In our teachings, there is so much emphasis on this that we should think about it at every single moment. Usually, we do not think about it. The Qur'an has emphasized this greatly. Although our topic today is not gratitude (shukr), I will quote a well-known verse of the Qur'an:
+Value these blessings that Allah has bestowed upon you very highly. In our teachings, there is so much emphasis on this that we should think about it at every single moment. Usually, we do not think about it. The Qur'an has emphasized this greatly. Although our topic today is not gratitude (shukr), I will quote a well-known verse of the Qur'an: 
 
 >لَئِن شَكَرْتُمْ لَأَزِيدَنَّكُمْ ۖ وَلَئِن كَفَرْتُمْ إِنَّ عَذَابِي لَشَدِيدٌ
 
@@ -182,27 +182,27 @@ Value these blessings that Allah has bestowed upon you very highly. In our teach
 
 And if you study the supplications, you will find that the Ahl al-Bayt (عليه السلام) have conveyed marvelous levels of spiritual knowledge through them. For instance, something we fail to value is the act of breathing. We have forgotten about it; life, life itself... The life we are living, we take it for granted; we assume it. For example, what is our habit? We set an alarm in the morning. We think setting an alarm means we will wake up. But you can only wake up if your eyes open! If you continue to sleep forever, the next day the alarm will be muted. So, look here, let me quickly read two short narrations from Al-Kafi so that you may understand its value. I am saying this for the children and the youth, so that you understand its worth.
 
-Meaning, Zurarah... you know Zurarah, right? What a great personality Zurarah was. He narrates from Imam al-Baqir (عليه السلام):
+Meaning, Zurarah... you know Zurarah, right? What a great personality Zurarah was. He narrates from Imam al-Baqir (عليه السلام): 
 
 >(اللَّهُمَّ صَلِّ عَلَى مُحَمَّدٍ وَآلِ مُحَمَّدٍ وَعَجِّلْ فَرَجَهُمْ)
 
-The Imam (عليه السلام) says:
+The Imam (عليه السلام) says: 
 
 >إِذَا قُمْتَ بِاللَّيْلِ مِنْ مَنَامِكَ
 
-"When you wake up from your sleep at night (or in the morning),"
+"When you wake up from your sleep at night (or in the morning)," 
 
 >فَقُلْ
 
-"then say:"
+"then say:" 
 
 >الْحَمْدُ لِلَّهِ الَّذِي رَدَّ عَلَيَّ رُوحِي
 
-"All praise is due to Allah, Who returned my soul to me." And he said:
+"All praise is due to Allah, Who returned my soul to me." And he said: 
 
 >رَدَّ عَلَيَّ رُوحِي
 
-For what purpose? For unlawful deeds? For sins? No,
+For what purpose? For unlawful deeds? For sins? No, 
 
 >لِأَحْمَدَهُ وَأَعْبُدَهُ
 
@@ -212,23 +212,23 @@ So now, see, I read this narration from Al-Kafi to you. In Al-Kafi, this phrase,
 
 >أَثْبَتُهُمْ فِي الْحَدِيثِ
 
-(the most reliable of them in Hadith), meaning the most expert and accurate in traditions. He was not an ordinary person. Shaykh al-Kulayni, the author of Al-Kafi, is not an ordinary man. He possessed a very meticulous vision, and he spent twenty years writing Al-Kafi—twenty years. If he repeats a hadith, it signifies that the hadith is extremely important. The second tradition he narrates elsewhere in Al-Kafi states:
+(the most reliable of them in Hadith), meaning the most expert and accurate in traditions. He was not an ordinary person. Shaykh al-Kulayni, the author of Al-Kafi, is not an ordinary man. He possessed a very meticulous vision, and he spent twenty years writing Al-Kafi—twenty years. If he repeats a hadith, it signifies that the hadith is extremely important. The second tradition he narrates elsewhere in Al-Kafi states: 
 
 >فَإِذَا قَامَ مِنْ نَوْمِهِ قَالَ الْحَمْدُ لِلَّهِ الَّذِي أَحْيَانِي
 
-"When he rises from his sleep," when his eyes open in the morning, he should say, "All praise is due to Allah Who gave me life,"
+"When he rises from his sleep," when his eyes open in the morning, he should say, "All praise is due to Allah Who gave me life," 
 
 >أَحْيَانِي بَعْدَ مَا أَمَاتَنِي
 
-"after He had caused me to die." "To die" here refers to sleep, because sleep is:
+"after He had caused me to die." "To die" here refers to sleep, because sleep is: 
 
 >أَنَّ النَّوْمَ أَخُو الْمَوْتِ
 
-"Sleep is the brother of death." Just as a human being loses their entire soul at the time of death, during sleep, only a part of the soul departs; that is, the intellectual soul (ruh al-aql) departs while the vital soul (ruh al-hayat) remains. The intellectual soul departs, but the vital soul remains, which is why a person tosses and turns in sleep, but they lack awareness, understanding, and comprehension—none of these exist during sleep. Therefore, a person is not held responsible for anything they do while asleep. That is why it is said:
+"Sleep is the brother of death." Just as a human being loses their entire soul at the time of death, during sleep, only a part of the soul departs; that is, the intellectual soul (ruh al-aql) departs while the vital soul (ruh al-hayat) remains. The intellectual soul departs, but the vital soul remains, which is why a person tosses and turns in sleep, but they lack awareness, understanding, and comprehension—none of these exist during sleep. Therefore, a person is not held responsible for anything they do while asleep. That is why it is said: 
 
 >أَنَّ النَّوْمَ أَخُو الْمَوْتِ
 
-And then the Imam (عليه السلام) says:
+And then the Imam (عليه السلام) says: 
 
 >وَإِلَيْهِ النُّشُورُ
 
@@ -238,15 +238,15 @@ Therefore, this is a very important matter, and we must realize the value of the
 
 ## The Advice of the Prophet (صلى الله عليه وآله)
 
-Now, we come to our main topic regarding the Noble Prophet (صلى الله عليه وآله):
+Now, we come to our main topic regarding the Noble Prophet (صلى الله عليه وآله): 
 
 >(اللَّهُمَّ صَلِّ عَلَى مُحَمَّدٍ وَآلِ مُحَمَّدٍ وَعَجِّلْ فَرَجَهُمْ)
 
-This narration has been recorded by Shaykh al-Tusi in his "Amali" (Majalis). And it is narrated from Imam al-Rida (عليه السلام):
+This narration has been recorded by Shaykh al-Tusi in his "Amali" (Majalis). And it is narrated from Imam al-Rida (عليه السلام): 
 
 >(اللَّهُمَّ صَلِّ عَلَى مُحَمَّدٍ وَآلِ مُحَمَّدٍ)
 
-He narrates from his ancestors, all the way to Amir al-Mu'minin (عليه السلام). And then Amir al-Mu'minin (عليه السلام) says:
+He narrates from his ancestors, all the way to Amir al-Mu'minin (عليه السلام). And then Amir al-Mu'minin (عليه السلام) says: 
 
 >جَاءَ خَالِدٌ إِلَى رَسُولِ اللَّهِ (صلى الله عليه وآله)
 
@@ -254,89 +254,89 @@ He narrates from his ancestors, all the way to Amir al-Mu'minin (عليه الس
 
 He said, "O Messenger of Allah, advise me."
 
-Look at the Messenger of Allah (صلى الله عليه وآله وسلم), his courage, and how much endurance and patience he had. Look at the level of patience in the Messenger of Allah (صلى الله عليه وآله وسلم).
+Look at the Messenger of Allah (صلى الله عليه وآله وسلم), his courage, and how much endurance and patience he had. Look at the level of patience in the Messenger of Allah (صلى الله عليه وآله وسلم). 
 
-What does he say? "O Messenger of Allah! Advise me, and please keep it very concise, do not make it too long. Give very brief advice so that I may memorize and remember it." Perhaps his memory was weak, or whatever the case was. But this shows that he did not have the recognition (*ma'rifah*) of the Messenger of Allah (صلى الله عليه وآله وسلم). If he had recognized the Messenger of Allah (صلى الله عليه وآله وسلم), he wouldn't be advising the Messenger of Allah (صلى الله عليه وآله وسلم) on how to give advice! He is coming to take advice and is himself advising the Messenger of Allah (صلى الله عليه وآله وسلم).
+What does he say? "O Messenger of Allah! Advise me, and please keep it very concise, do not make it too long. Give very brief advice so that I may memorize and remember it." Perhaps his memory was weak, or whatever the case was. But this shows that he did not have the recognition (*ma'rifah*) of the Messenger of Allah (صلى الله عليه وآله وسلم). If he had recognized the Messenger of Allah (صلى الله عليه وآله وسلم), he wouldn't be advising the Messenger of Allah (صلى الله عليه وآله وسلم) on how to give advice! He is coming to take advice and is himself advising the Messenger of Allah (صلى الله عليه وآله وسلم). 
 
-He should have simply said, "O Messenger of Allah, advise me" (يا رسول الله أوصني). As for the rest, the Messenger of Allah (صلى الله عليه وآله وسلم) knows whether you have a memory or not. He knows what your capacity is. Because these people did not recognize the Messenger as the Messenger. They thought he was like one of them, just like how people are among themselves; they didn't recognize him, they lacked *ma'rifah*. And his name was also like that, Khalid. Right?
+He should have simply said, "O Messenger of Allah, advise me" (يا رسول الله أوصني). As for the rest, the Messenger of Allah (صلى الله عليه وآله وسلم) knows whether you have a memory or not. He knows what your capacity is. Because these people did not recognize the Messenger as the Messenger. They thought he was like one of them, just like how people are among themselves; they didn't recognize him, they lacked *ma'rifah*. And his name was also like that, Khalid. Right? 
 
 So he comes and says, "O Messenger of Allah, أوصني (advise me) وَأَقِلَّهُ (and make it brief) so that لَعَلِّي أَحْفَظُ (perhaps I may memorize it)."
 
-Anyway, the Messenger of Allah (صلى الله عليه وآله وسلم) did not mind these things, but he knew what his level was. And this is also a lesson for us. Whenever people come and speak like this, we should not mind. Because that is their level, and they are speaking according to it. That's why one should not mind.
+Anyway, the Messenger of Allah (صلى الله عليه وآله وسلم) did not mind these things, but he knew what his level was. And this is also a lesson for us. Whenever people come and speak like this, we should not mind. Because that is their level, and they are speaking according to it. That's why one should not mind. 
 
-So the Prophet (صلى الله عليه وآله وسلم) said:
+So the Prophet (صلى الله عليه وآله وسلم) said: 
 أُوصِيكَ بِخَمْسٍ
-"I advise you with five things."
+"I advise you with five things." 
 
 ### The Five Advices
 
-First:
+First: 
 بِالْيَأْسِ مِمَّا فِي أَيْدِي النَّاسِ
-"Despair of what is in the hands of people."
+"Despair of what is in the hands of people." 
 
-Meaning, never—we will explain this in detail *inshallah*—never have expectations that "since he has this in his hand, we will get this from him, if we befriend him, he will give us that, if we do that with him, he will give us this." No one in this world can give you anything. What can one beggar give to another beggar? What can one beggar give to another beggar? And the second thing the Prophet (صلى الله عليه وآله وسلم) said—yes, after saying this sentence, "Look, despair of what is in the hands of people..."
+Meaning, never—we will explain this in detail *inshallah*—never have expectations that "since he has this in his hand, we will get this from him, if we befriend him, he will give us that, if we do that with him, he will give us this." No one in this world can give you anything. What can one beggar give to another beggar? What can one beggar give to another beggar? And the second thing the Prophet (صلى الله عليه وآله وسلم) said—yes, after saying this sentence, "Look, despair of what is in the hands of people..." 
 فَإِنَّهُ الْغِنَى الْحَاضِرُ
-"For indeed, that is the present wealth."
+"For indeed, that is the present wealth." 
 
-This is true wealth: never looking at what is in another's hand, having no expectation from anyone that "this person will give me this." What can he give?!
+This is true wealth: never looking at what is in another's hand, having no expectation from anyone that "this person will give me this." What can he give?! 
 
-The second thing, which we will explain in detail *inshallah*, the Prophet (صلى الله عليه وآله وسلم) advised him, saying:
+The second thing, which we will explain in detail *inshallah*, the Prophet (صلى الله عليه وآله وسلم) advised him, saying: 
 وَإِيَّاكَ وَالطَّمَعَ
-"Beware of greed."
+"Beware of greed." 
 فَإِنَّهُ الْفَقْرُ الْحَاضِرُ
-"For indeed, it is the present poverty."
+"For indeed, it is the present poverty." 
 
-Because that is actual poverty. Actual poverty, i.e., destitution and neediness, is when a person is greedy.
+Because that is actual poverty. Actual poverty, i.e., destitution and neediness, is when a person is greedy. 
 
-The third thing:
+The third thing: 
 وَصَلِّ صَلَاةَ مُوَدِّعٍ
-"And pray the prayer of one bidding farewell."
+"And pray the prayer of one bidding farewell." 
 
 When you pray, pray as if it is your last prayer. Your last prayer. If you were told, "This is your last prayer, after this you will not get another opportunity to pray," how would you pray? Like we pray? Like we pray? No! Saying:
 إِيَّاكَ نَعْبُدُ وَإِيَّاكَ نَسْتَعِينُ
-in a rush, super fast, just to finish the prayer quickly and attend to other matters, putting Allah as the last priority? Therefore, صَلَاةَ مُوَدِّعٍ, meaning a farewell prayer. How would a farewell prayer be?
+in a rush, super fast, just to finish the prayer quickly and attend to other matters, putting Allah as the last priority? Therefore, صَلَاةَ مُوَدِّعٍ, meaning a farewell prayer. How would a farewell prayer be? 
 
-And next:
+And next: 
 وَإِيَّاكَ وَمَا تَعْتَذِرُ مِنْهُ
-And the fourth thing: never do an action for which you will have to apologize or say sorry later on. Do not do such an action at all. Think, before you act, think: "I am doing this action, what will be its outcome? If someone finds out, what will they say? Will they say 'Well done' (أَحْسَنْتُمْ) or will they say 'No, you did a very bad thing, you did wrong, you shouldn't have done this'?"
+And the fourth thing: never do an action for which you will have to apologize or say sorry later on. Do not do such an action at all. Think, before you act, think: "I am doing this action, what will be its outcome? If someone finds out, what will they say? Will they say 'Well done' (أَحْسَنْتُمْ) or will they say 'No, you did a very bad thing, you did wrong, you shouldn't have done this'?" 
 
-And lastly, the Prophet (صلى الله عليه وآله وسلم) said the fifth thing—we will explain all of these in detail *inshallah*:
+And lastly, the Prophet (صلى الله عليه وآله وسلم) said the fifth thing—we will explain all of these in detail *inshallah*: 
 وَأَحِبَّ لِأَخِيكَ مَا تُحِبُّ لِنَفْسِكَ
-"And love for your brother what you love for yourself."
+"And love for your brother what you love for yourself." 
 
-Now, this applies to every walk of life, every aspect of life: that a person should desire for his brother what he desires for himself. If a person only thinks of this—meaning by "brother" here, we mean every believer we deal with—that we think: "He is in my place, and I am in his place." Then how would he feel? This is the important thing.
+Now, this applies to every walk of life, every aspect of life: that a person should desire for his brother what he desires for himself. If a person only thinks of this—meaning by "brother" here, we mean every believer we deal with—that we think: "He is in my place, and I am in his place." Then how would he feel? This is the important thing. 
 
-So the Prophet (صلى الله عليه وآله وسلم) advised him with these five things. Now, the first thing we present before you is:
+So the Prophet (صلى الله عليه وآله وسلم) advised him with these five things. Now, the first thing we present before you is: 
 الْيَأْسُ مِمَّا فِي أَيْدِي النَّاسِ
-meaning to despair of what is in the hands of people. Let us recite a Salawat to proceed, *inshallah*.
+meaning to despair of what is in the hands of people. Let us recite a Salawat to proceed, *inshallah*. 
 
 (Audience recites Salawat: اللَّهُمَّ صَلِّ عَلَى مُحَمَّدٍ وَآلِ مُحَمَّدٍ وَعَجِّلْ فَرَجَهُمْ وَالْعَنْ أَعْدَائَهُمْ)
 
 ## Understanding Despair and Divine Mercy
 
-Look, when the word "Ya's" (despair/hopelessness) is used, it appears in the Quran from two aspects. One kind of despair is despair of Allah's mercy, which is *haram* (forbidden). It is a major sin. After polytheism (*shirk*), the greatest sin is despairing of Allah's mercy. A person must never despair of Allah's mercy. The Quran has repeatedly forbidden it:
+Look, when the word "Ya's" (despair/hopelessness) is used, it appears in the Quran from two aspects. One kind of despair is despair of Allah's mercy, which is *haram* (forbidden). It is a major sin. After polytheism (*shirk*), the greatest sin is despairing of Allah's mercy. A person must never despair of Allah's mercy. The Quran has repeatedly forbidden it: 
 وَلَا تَيْأَسُوا مِنْ رَوْحِ اللَّهِ إِنَّهُ لَا يَيْأَسُ مِنْ رَوْحِ اللَّهِ إِلَّا الْقَوْمُ الْكَافِرُونَ
-"And despair not of the relief of Allah. Indeed, no one despairs of the relief of Allah except the disbelieving people."
+"And despair not of the relief of Allah. Indeed, no one despairs of the relief of Allah except the disbelieving people." 
 
-Look, do not despair of Allah's mercy, because no one despairs of Allah's mercy except the disbelievers, those who are ungrateful.
+Look, do not despair of Allah's mercy, because no one despairs of Allah's mercy except the disbelievers, those who are ungrateful. 
 
-Now look, let me present this Quranic verse to you. God says in Surah Hud, verses 9 to 11. Allah says:
+Now look, let me present this Quranic verse to you. God says in Surah Hud, verses 9 to 11. Allah says: 
 وَلَئِنْ أَذَقْنَا الْإِنْسَانَ مِنَّا رَحْمَةً
-"And if We give man a taste of mercy from Us..."
+"And if We give man a taste of mercy from Us..." 
 
-Here, "mercy" refers to "blessings" (*ni'mah*). We give him blessings, We let him taste blessings, We give him bounties, We give him good things of this world...
+Here, "mercy" refers to "blessings" (*ni'mah*). We give him blessings, We let him taste blessings, We give him bounties, We give him good things of this world... 
 ثُمَّ نَزَعْنَاهَا مِنْهُ
-"and then We take it away from him."
+"and then We take it away from him." 
 
-We take it away, for example, he was given offspring, and then, God forbid, his offspring—his son—passed away, God forbid. He died. We are not talking about daughters, because among the Arabs, daughters were buried alive even before growing up. Is it clear? Meaning, as soon as they found out a daughter was born, they would bury her before she grew up. Right? This was the custom of the Arabs before Islam.
+We take it away, for example, he was given offspring, and then, God forbid, his offspring—his son—passed away, God forbid. He died. We are not talking about daughters, because among the Arabs, daughters were buried alive even before growing up. Is it clear? Meaning, as soon as they found out a daughter was born, they would bury her before she grew up. Right? This was the custom of the Arabs before Islam. 
 
-And unfortunately, in India too, it is similar. In India, even now, you see why sonography is not allowed to reveal the gender? Because people abort. If it's a girl, they abort it. That is the same ignorance (*jahiliyyah*).
+And unfortunately, in India too, it is similar. In India, even now, you see why sonography is not allowed to reveal the gender? Because people abort. If it's a girl, they abort it. That is the same ignorance (*jahiliyyah*). 
 
-And you see, many times it happens—we always emphasize one thing: keep doing small good deeds, always. It has a great impact. And its impact, you know, continues in the progeny, for generations. You might have heard of the poet Farazdaq. What a great poet he was! Do you know that Farazdaq's grandfather was not a Muslim? So, in the times of *jahiliyyah*, he had a habit. And because of that habit, faith (*iman*) entered Farazdaq's lineage. Look how far-reaching things can be!
+And you see, many times it happens—we always emphasize one thing: keep doing small good deeds, always. It has a great impact. And its impact, you know, continues in the progeny, for generations. You might have heard of the poet Farazdaq. What a great poet he was! Do you know that Farazdaq's grandfather was not a Muslim? So, in the times of *jahiliyyah*, he had a habit. And because of that habit, faith (*iman*) entered Farazdaq's lineage. Look how far-reaching things can be! 
 
-And do you know what that habit was? In *jahiliyyah*, when a daughter was born to an Arab, and Farazdaq's grandfather came to know about it, Farazdaq's grandfather would go and say to him: "What happened, brother? Do you intend to bury the girl?" He would reply: "Yes." Then Farazdaq's grandfather would say: "Do not bury her, give her to me. I will raise her." So he would hand her over.
+And do you know what that habit was? In *jahiliyyah*, when a daughter was born to an Arab, and Farazdaq's grandfather came to know about it, Farazdaq's grandfather would go and say to him: "What happened, brother? Do you intend to bury the girl?" He would reply: "Yes." Then Farazdaq's grandfather would say: "Do not bury her, give her to me. I will raise her." So he would hand her over. 
 
-Do you know how many girls he raised? Can you think, can you estimate? For us, if we have two or four children, we get worried, right? And those are our own children, yet we get worried! Here, raising others' children, and that too, bringing and raising girls! It is written in history, in the biography of Farazdaq—read Farazdaq's biography—he raised one thousand girls! More than one thousand. And what was the result? That in his lineage, offspring like Farazdaq were born. Indeed! More than a thousand, it is an amazing event. Look at doing good, just that he had this mindset: "I must do good, I must do good."
+Do you know how many girls he raised? Can you think, can you estimate? For us, if we have two or four children, we get worried, right? And those are our own children, yet we get worried! Here, raising others' children, and that too, bringing and raising girls! It is written in history, in the biography of Farazdaq—read Farazdaq's biography—he raised one thousand girls! More than one thousand. And what was the result? That in his lineage, offspring like Farazdaq were born. Indeed! More than a thousand, it is an amazing event. Look at doing good, just that he had this mindset: "I must do good, I must do good." 
 
 Anyway, I presented this as a side-note to you, that one should keep doing good deeds.
 
@@ -366,7 +366,7 @@ So you see, the character of the Ahl al-Bayt (عليه السلام) was exactly
 
 ### The Confrontation at Dar-ul-Imara
 
-Hearing this, she got worried and said, "Brother, I will not let you go alone. Brother, I will not let you go solitary." She said, "Brother Abbas (عليه السلام), son Ali Akbar (عليه السلام), look, the Master is going to the court, so take the youths of Bani Hashim and go along."
+Hearing this, she got worried and said, "Brother, I will not let you go alone. Brother, I will not let you go solitary." She said, "Brother Abbas (عليه السلام), son Ali Akbar (عليه السلام), look, the Master is going to the court, so take the youths of Bani Hashim and go along." 
 
 It is found in the accounts of the martyrdom (Maqtal) that thirty youths of Bani Hashim surrounded Imam Hussain (عليه السلام) in their circle and took him to Dar-ul-Imara. As soon as they reached Dar-ul-Imara, Imam Hussain (عليه السلام) said to the youths, "You all stay here, it is not appropriate for you to come inside with me. I will go inside all alone. But yes, if my voice is raised, then all of you come inside."
 
@@ -374,17 +374,17 @@ Mourners, this was just the introduction to Muharram. From here, Muharram begins
 
 إِنَّا لِلَّٰهِ وَإِنَّا إِلَيْهِ رَاجِعُونَ
 
-After that, Waleed, who was the governor of Medina, said, "Hussain, Yazid has sent a letter saying that you must pledge allegiance to Yazid, and if you do not pledge allegiance, your head will be severed."
+After that, Waleed, who was the governor of Medina, said, "Hussain, Yazid has sent a letter saying that you must pledge allegiance to Yazid, and if you do not pledge allegiance, your head will be severed." 
 
-Imam Hussain (عليه السلام) said, "These matters of allegiance are not decided in the night like this. Tomorrow morning, gather all the Muslims who are in Medina; there are companions, followers, elders—gather everyone, and after that, it will be decided in whose hands allegiance will be pledged and who will pledge allegiance."
+Imam Hussain (عليه السلام) said, "These matters of allegiance are not decided in the night like this. Tomorrow morning, gather all the Muslims who are in Medina; there are companions, followers, elders—gather everyone, and after that, it will be decided in whose hands allegiance will be pledged and who will pledge allegiance." 
 
-Waleed said, "No, Yazid insisted that this matter be decided immediately, at this very moment; you must pledge allegiance now."
+Waleed said, "No, Yazid insisted that this matter be decided immediately, at this very moment; you must pledge allegiance now." 
 
 Hussain (عليه السلام) said, "If you are insisting, then hear my decision:
 
 مِثْلِي لَا يُبَايِعُ مِثْلَهُ
 
-A person like me cannot pledge allegiance to a person like Yazid."
+A person like me cannot pledge allegiance to a person like Yazid." 
 
 And saying this, Hussain (عليه السلام) stood up and started to leave. Now, as he had barely walked a short distance, Marwan called out, "Waleed! Waleed, stop Hussain and take his allegiance by force right now, because if Hussain leaves from here, you will never be able to take his allegiance until rivers of blood flow in Medina. And if he does not pledge allegiance now, sever his head."
 
@@ -392,7 +392,7 @@ As soon as he heard this, the beloved son of Fatima (عليها السلام) be
 
 أَتُهَدِّدُنِي بِالْقَتْلِ يَا ابْنَ الزَّرْقَاءِ؟ مَنْ يَقْتُلُنِي؟ أَنْتَ أَمْ وَلِيدٌ؟
 
-As soon as Hussain's (عليه السلام) voice was raised, the door of Dar-ul-Imara burst open, and the youths of Bani Hashim came inside. Foremost among them was Hazrat Abul Fazl al-Abbas (عليه السلام), with his hand on the hilt of his sword. Abbas drew his sword and said, "Master, why was your voice raised? Who dared? Who showed disrespect?"
+As soon as Hussain's (عليه السلام) voice was raised, the door of Dar-ul-Imara burst open, and the youths of Bani Hashim came inside. Foremost among them was Hazrat Abul Fazl al-Abbas (عليه السلام), with his hand on the hilt of his sword. Abbas drew his sword and said, "Master, why was your voice raised? Who dared? Who showed disrespect?" 
 
 As soon as Abbas (عليه السلام) said this, Hussain (عليه السلام) placed his hand on the hilt of his sword and said, "Abbas, this is not the time for jihad. Have patience, Abbas." I would say, O Master, you ordered Abbas (عليه السلام) to be patient at every turn, and with this very patience, Abbas (عليه السلام) departed from this world.
 
@@ -400,20 +400,20 @@ As soon as Abbas (عليه السلام) said this, Hussain (عليه السلا
 
 ## Supplications for the Reappearance and the Community
 
-O Lord, hasten the reappearance of the Imam of the Time (عليه السلام).
-O Lord, hasten the reappearance of the Imam of the Time (عليه السلام).
-O Lord, hasten the reappearance of the Imam of the Time (عليه السلام).
-Count us among his helpers and companions.
-Relieve the worries of those who are distressed.
-Help those who are in debt to pay off their debts.
-Grant pious and righteous children to those who are childless.
-Return those who are far from their homeland safely.
-Wherever the Shias of Haider-e-Karrar are in the world, protect their lives, wealth, honor, and dignity.
-Protect the great scholars and grand authorities (Maraji').
-Protect the holy shrines.
-Protect those who protect them.
-Bless us with the visitation (ziyarat) of Muhammad and the Progeny of Muhammad (صلى الله عليه وآله وسلم) in this world, and their intercession (shafa'at) in the hereafter.
-Accept this humble mourning of ours.
+O Lord, hasten the reappearance of the Imam of the Time (عليه السلام).  
+O Lord, hasten the reappearance of the Imam of the Time (عليه السلام).  
+O Lord, hasten the reappearance of the Imam of the Time (عليه السلام).  
+Count us among his helpers and companions.  
+Relieve the worries of those who are distressed.  
+Help those who are in debt to pay off their debts.  
+Grant pious and righteous children to those who are childless.  
+Return those who are far from their homeland safely.  
+Wherever the Shias of Haider-e-Karrar are in the world, protect their lives, wealth, honor, and dignity.  
+Protect the great scholars and grand authorities (Maraji').  
+Protect the holy shrines.  
+Protect those who protect them.  
+Bless us with the visitation (ziyarat) of Muhammad and the Progeny of Muhammad (صلى الله عليه وآله وسلم) in this world, and their intercession (shafa'at) in the hereafter.  
+Accept this humble mourning of ours.  
 
 Mourning of Hussain (عليه السلام).
 
@@ -423,38 +423,38 @@ Mourning of Hussain (عليه السلام).
 
 Ya Hussain! Ya Hussain! Ya Hussain! Ya Hussain!
 
-We will populate, we will populate,
-Now Karbala, O grandfather,
-We are leaving your city,
-Give us your blessings, O grandfather,
-We are leaving your city,
-Give us your blessings, O grandfather.
+We will populate, we will populate,  
+Now Karbala, O grandfather,  
+We are leaving your city,  
+Give us your blessings, O grandfather,  
+We are leaving your city,  
+Give us your blessings, O grandfather.  
 
-Your religion is in difficulty,
-How can I remain in my home?
-Your religion is to be saved,
-We are leaving your city,
-Give us your blessings, O grandfather.
+Your religion is in difficulty,  
+How can I remain in my home?  
+Your religion is to be saved,  
+We are leaving your city,  
+Give us your blessings, O grandfather.  
 
-Coming to your shrine, we used to light the candles,
-Now who will light them?
-We are leaving your city,
-Give us your blessings, O grandfather.
+Coming to your shrine, we used to light the candles,  
+Now who will light them?  
+We are leaving your city,  
+Give us your blessings, O grandfather.  
 
-Even birds do not leave their nests,
-Like me in strangeness,
-Now a new abode,
-We are leaving your city,
-Give us your blessings, O grandfather.
+Even birds do not leave their nests,  
+Like me in strangeness,  
+Now a new abode,  
+We are leaving your city,  
+Give us your blessings, O grandfather.  
 
-The children are very young, and it is the season of intense heat,
-The destination is filled with fire, but we must go,
-We are leaving your city,
-Give us your blessings, O grandfather.
+The children are very young, and it is the season of intense heat,  
+The destination is filled with fire, but we must go,  
+We are leaving your city,  
+Give us your blessings, O grandfather.  
 
-Zainab (عليها السلام) never came to your shrine without her veil,
-Now see how the world...
-We are leaving your city,
+Zainab (عليها السلام) never came to your shrine without her veil,  
+Now see how the world...  
+We are leaving your city,  
 Give us your blessings, O grandfather.
 
 *(Chanting of poetry in Urdu)*:
